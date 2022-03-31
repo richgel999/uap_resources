@@ -43,3 +43,8 @@ https://majesticdocuments.com/pdf/oppenheimer_einstein.pdf
 Franklin D. Roosevelt Memo on Non-Terrestrial Science and Technology, 22 Feb. 1944<br>
 https://majesticdocuments.com/pdf/fdr_22feb44.pdf
 
+UAP's and Nukes:
+https://www.ufohastings.com/
+https://www.amazon.com/UFOs-Nukes-Extraordinary-Encounters-Nuclear/dp/1544822197<br>
+https://www.amazon.com/UFOs-Nukes-Secret-Link-Revealed/dp/B06XWQ2NWX/ref=sr_1_1?crid=3H57VEY8ZKONP&keywords=ufo%27s+and+nukes&qid=1648739195&sprefix=UFO%27s+and+nukes%2Caps%2C54&sr=8-1
+
