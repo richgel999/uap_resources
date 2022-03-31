@@ -17,7 +17,7 @@ Lue Elizondo, Disclosure Tonight - on counterintel funding media disinfo<br>
 https://pastebin.com/MFvwFq2W
 
 Clip of Interview with Eric W. Davis, Ph.D - where he totally spills the beans<br>
-https://pastebin.com/MQHhUgYA
+https://pastebin.com/MQHhUgYA<br>
 https://www.youtube.com/watch?v=k2gjPRv4E7s
 
 Interview with Dr. Eric Davis - the larger interview<br>
