@@ -59,7 +59,8 @@ https://recordsearch.naa.gov.au/SearchNRetrieve/Interface/ViewImage.aspx?B=30030
 Ramey memo photo analysis:<br>
 http://kevinrandle.blogspot.com/2018/12/the-ramey-memo-latest-information.html
 
-"Unconventional Flying Objects: A Former NASA Scientist Explains How UFOs Really Work" - Pull R. Hill:
+Paul R. Hill (mid–twentieth-century American aerodynamicist, leading research and development engineer and manager for NASA/NACA),
+UAP's absolutely follow the laws of physics:<br>
 https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-1571747133/dp/1571747133/ref=dp_ob_title_bk
 
 Other misc resources:
