@@ -1,5 +1,5 @@
 # uap_stuff
-Key UAP related reading materials
+Key UAP related reading materials:
 
 Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
 https://www.openminds.tv/pdf/ufo-files/DawnOfANewAge.pdf
