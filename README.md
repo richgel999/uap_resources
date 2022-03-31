@@ -59,5 +59,10 @@ https://recordsearch.naa.gov.au/SearchNRetrieve/Interface/ViewImage.aspx?B=30030
 Ramey memo photo analysis:<br>
 http://kevinrandle.blogspot.com/2018/12/the-ramey-memo-latest-information.html
 
+"Unconventional Flying Objects: A Former NASA Scientist Explains How UFOs Really Work" - Pull R. Hill:
+https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-1571747133/dp/1571747133/ref=dp_ob_title_bk
+
+Other misc resources:
+
 Rockefeller sponsored world leader briefing document:<br>
 https://www.openminds.tv/wp-content/uploads/Rockefeller-Briefing-Document.pdf
