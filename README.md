@@ -52,3 +52,6 @@ https://www.amazon.com/UFOs-Nukes-Secret-Link-Revealed/dp/B06XWQ2NWX/ref=sr_1_1?
 
 Scientific Intelligence - General - Unidentified Flying Objects:<br>
 https://recordsearch.naa.gov.au/SearchNRetrieve/Interface/ViewImage.aspx?B=30030606&S=1
+
+Ramey memo photo analysis:
+http://kevinrandle.blogspot.com/2018/12/the-ramey-memo-latest-information.html
