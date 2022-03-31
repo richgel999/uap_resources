@@ -43,5 +43,3 @@ https://majesticdocuments.com/pdf/oppenheimer_einstein.pdf
 Franklin D. Roosevelt Memo on Non-Terrestrial Science and Technology, 22 Feb. 1944<br>
 https://majesticdocuments.com/pdf/fdr_22feb44.pdf
 
-George C. Marshall to Franklin D. Roosevelt, 5 March 1942<br>
-https://majesticdocuments.com/pdf/marshall-fdr-march1942.pdf
