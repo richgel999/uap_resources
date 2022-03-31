@@ -16,6 +16,8 @@ https://duckduckgo.com/?q=Elizondo+exotic+materials&ia=web
 Lue Elizondo, Disclosure Tonight - on counterintel funding media disinfo<br>
 https://pastebin.com/MFvwFq2W
 
+TODO: More Elizondo interviews (there are so many it's hard for me to boil it down to a small key list).
+
 Clip of interview with Eric W. Davis, Ph.D - where he totally spills the beans<br>
 https://pastebin.com/MQHhUgYA<br>
 https://www.youtube.com/watch?v=k2gjPRv4E7s
