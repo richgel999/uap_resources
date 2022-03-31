@@ -34,7 +34,7 @@ https://www.youtube.com/watch?v=UnCjbN7LCCs
 DIA DIRD's:<br>
 https://t.co/YxyShnvnxv
 
-Leaked 1940's era reports/memos:
+Leaked reports/memos:
 
 Twining’s “White Hot” Report: Mission Assessment of Recovered Lenticular Aerodyne Objects, 19 September 1947<br>
 https://majesticdocuments.com/pdf/twining_whitehotreport.pdf
