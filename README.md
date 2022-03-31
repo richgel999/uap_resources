@@ -1,5 +1,5 @@
 # uap_stuff
-Key UAP related reading materials:
+The key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Hastings, and a few 1940's-era memo leaks:
 
 Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
 https://www.openminds.tv/pdf/ufo-files/DawnOfANewAge.pdf
