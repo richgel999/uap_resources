@@ -1,5 +1,5 @@
 # uap_stuff
-The key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Hastings, and a few 1940's-era memo leaks:
+Some of the key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Hastings,  a few 1940's-era memo leaks, and the declassified Austrialian report:
 
 Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
 https://www.openminds.tv/pdf/ufo-files/DawnOfANewAge.pdf
@@ -48,3 +48,5 @@ https://www.ufohastings.com/<br>
 https://www.amazon.com/UFOs-Nukes-Extraordinary-Encounters-Nuclear/dp/1544822197<br>
 https://www.amazon.com/UFOs-Nukes-Secret-Link-Revealed/dp/B06XWQ2NWX/ref=sr_1_1?crid=3H57VEY8ZKONP&keywords=ufo%27s+and+nukes&qid=1648739195&sprefix=UFO%27s+and+nukes%2Caps%2C54&sr=8-1
 
+Scientific Intelligence - General - Unidentified Flying Objects:<br>
+https://recordsearch.naa.gov.au/SearchNRetrieve/Interface/ViewImage.aspx?B=30030606&S=1
