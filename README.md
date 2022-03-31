@@ -1,5 +1,5 @@
 # uap_stuff
-Some of the key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Hastings,  a few 1940's-era memo leaks, and the declassified Austrialian report:
+Some of the key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Hastings,  a few 1940's-era memo leaks, and the declassified Austrialian report, and some other things. I believe that this material, taken as a whole, paints a reasonably coherant picture of UAP C/R's (crash recoveries) since the early 40's and an active R&D program that seeded US industry with exotic materials:
 
 Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
 https://www.openminds.tv/pdf/ufo-files/DawnOfANewAge.pdf
