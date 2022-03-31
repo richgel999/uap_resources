@@ -1,7 +1,7 @@
 # uap_stuff
 Key UAP related reading materials
 
-Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")
+Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
 https://www.openminds.tv/pdf/ufo-files/DawnOfANewAge.pdf
 
 Book on Army R&D feeding exotic UAP-sourced materials to US industry, the R area crash recovery (C/R), by Corso and Birnes
