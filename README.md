@@ -89,5 +89,5 @@ https://www.youtube.com/playlist?list=PLZ7ikzmc6zlPd4Y5pg8XtzS_0-ChSTeJ6##
 Christopher Mellon (20 years in the U.S. Intelligence Community, Minority Staff Director of the Senate Intelligence Committee, Deputy Assistant Secretary of Defense for Intelligence)<br>
 https://www.christophermellon.net/
 
-Transcript of interview with June Crain in Ocean Shores, WA<br>
+Transcript of Clarkson interview with June Crain in Ocean Shores, WA<br>
 https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf
