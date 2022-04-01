@@ -5,10 +5,10 @@ Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
 https://www.openminds.tv/pdf/ufo-files/DawnOfANewAge.pdf
 
 Book on Army R&D feeding exotic UAP-sourced materials to US industry, the R area crash recovery (C/R), by Corso and Birnes<br>
-https://www.amazon.com/Day-After-Roswell-William-Birnes-ebook/dp/B000FBJHT4/ref=sr_1_1?crid=2J8Y39IFI656L&keywords=The+Day+after+Roswell&qid=1648737617&sprefix=the+day+after+roswell%2Caps%2C69&sr=8-1
+https://www.amazon.com/Day-After-Roswell-William-Birnes-ebook/dp/B000FBJHT4/
 
 TELL MY STORY - June Crain: exotic materials, R C/R, Paperclip Scientists, very early SAP projects<br>
-https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG/ref=sr_1_1?crid=2ZX49A47NBUVF&keywords=June+Crain&qid=1648737322&sprefix=june+crain%2Caps%2C77&sr=8-1
+https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG/
 
 Lue Elizondo, statement during interviews of "exotic materials"<br>
 https://duckduckgo.com/?q=Elizondo+exotic+materials&ia=web
@@ -16,7 +16,7 @@ https://duckduckgo.com/?q=Elizondo+exotic+materials&ia=web
 Lue Elizondo, Disclosure Tonight - on counterintel funding media disinfo<br>
 https://pastebin.com/MFvwFq2W
 
-TODO: More Elizondo interviews (there are so many it's hard for me to boil it down to a small key list).
+_TODO: More Elizondo interviews (there are so many it's hard for me to boil it down to a small key list)._
 
 Clip of interview with Eric W. Davis, Ph.D - where he totally spills the beans<br>
 https://pastebin.com/MQHhUgYA<br>
@@ -31,10 +31,19 @@ https://www.nytimes.com/2020/07/23/us/politics/pentagon-ufo-harry-reid-navy.html
 Dr Hal Puthoff Presentation & Q&A - C/R or "Crash Retrievals", and the new R&D program, DIA DIRD's<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
 
-DIA DIRD's:<br>
-https://t.co/YxyShnvnxv
+DIA DIRD's (Defense Intelligence Agency's _Defense Intelligence Reference Documents_):<br>
+https://www.dropbox.com/sh/95tgfd2lljqrve3/AABKl58mfojoZjNiKEZAz8gMa
 
-Leaked reports/memos:
+In Plain Sight: An investigation into UFOs and impossible science, 2021/08/01:<br>
+https://www.amazon.com/Plain-Sight-investigation-impossible-science-ebook/dp/B08VYR4DZ6/
+
+Skinwalkers at the Pentagon: An Insiders' Account of the Secret Government UFO Program, 2021/10/01:<br>
+https://www.amazon.com/Skinwalkers-Pentagon-Insiders-Account-Government-ebook/dp/B09J484KYD/
+
+Theories of Everything with Curt Jaimungal "UFO" playlist, containing in-depth interviews with Luis Elizondo, Jacques Vallée, Avi Loeb, and more:<br>
+https://www.youtube.com/playlist?list=PLZ7ikzmc6zlPd4Y5pg8XtzS_0-ChSTeJ6##
+
+## Leaked reports/memos:
 
 Twining’s “White Hot” Report: Mission Assessment of Recovered Lenticular Aerodyne Objects, 19 September 1947<br>
 https://majesticdocuments.com/pdf/twining_whitehotreport.pdf
@@ -51,7 +60,7 @@ https://majesticdocuments.com/pdf/mj12_fifthannualreport.pdf
 UAP's and Nukes:<br>
 https://www.ufohastings.com/<br>
 https://www.amazon.com/UFOs-Nukes-Extraordinary-Encounters-Nuclear/dp/1544822197<br>
-https://www.amazon.com/UFOs-Nukes-Secret-Link-Revealed/dp/B06XWQ2NWX/ref=sr_1_1?crid=3H57VEY8ZKONP&keywords=ufo%27s+and+nukes&qid=1648739195&sprefix=UFO%27s+and+nukes%2Caps%2C54&sr=8-1
+https://www.amazon.com/UFOs-Nukes-Secret-Link-Revealed/dp/B06XWQ2NWX/
 
 Scientific Intelligence - General - Unidentified Flying Objects:<br>
 https://recordsearch.naa.gov.au/SearchNRetrieve/Interface/ViewImage.aspx?B=30030606&S=1
@@ -61,9 +70,9 @@ http://kevinrandle.blogspot.com/2018/12/the-ramey-memo-latest-information.html
 
 Paul R. Hill (mid–twentieth-century American aerodynamicist, leading research and development engineer and manager for NASA/NACA),
 UAP's absolutely follow the laws of physics:<br>
-https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-1571747133/dp/1571747133/ref=dp_ob_title_bk
+https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-1571747133/dp/1571747133/
 
-Other misc resources:
+## Other misc resources:
 
 Rockefeller sponsored world leader briefing document:<br>
 https://www.openminds.tv/wp-content/uploads/Rockefeller-Briefing-Document.pdf
