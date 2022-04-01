@@ -26,6 +26,9 @@ https://duckduckgo.com/?q=Elizondo+exotic+materials&ia=web
 Lue Elizondo, Disclosure Tonight - on counterintel funding media disinfo<br>
 https://pastebin.com/MFvwFq2W
 
+List of interviews with Lue Elizondo, others<br>
+https://github.com/noncoding3torus/ReferenceMaterial/
+
 _TODO: More Elizondo interviews (there are so many it's hard for me to boil it down to a small key list)._
 
 Clip of interview with Eric W. Davis, Ph.D - where he totally spills the beans<br>
@@ -134,5 +137,3 @@ https://www.esd.whs.mil/Portals/54/Documents/FOID/Reading%20Room/UFOsandUAPs/ADA
 The FBI-CIA-UFO Connection: The Hidden UFO Activities of USA Intelligence Agencies -  [Dr. Bruce Maccabee](http://brumac.mysite.com/)<br>
 https://www.amazon.com/FBI-CIA-UFO-Connection-Activities-Intelligence-Agencies/dp/1502317214
 
-List of interviews with Lue Elizondo, others<br>
-https://github.com/noncoding3torus/ReferenceMaterial/
