@@ -1,6 +1,15 @@
 # uap_stuff
 Some of the key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Hastings,  a few 1940's-1950's-era memo leaks, the declassified Austrialian report, and some other things. I believe this material, taken as a whole, tells a reasonably coherant picture of UAP C/R's (crash recoveries) since the early 40's and an active R&D program that seeded US industry with exotic materials:
 
+## List of key names/witnesses
+Lt. Col. Philip J. Corso - Chief Foreign Technology Division of the United States Department of Defense<br>
+Dr. Hal E. Puthoff - Director of the Institute for Advanced Studies at Austin, Chairman of the Science Advisory Board of Bigelow Aerospace<br>
+Dr. Eric Davis - a research physicist at the Institute for Advanced Studies in Austin<br>
+Lue Elizondo - Program Manager/Director for AATIP, Career Intelligence Officer US Army and DoD<br>
+June Crain - Clerk/Stenographer Wright-Patterson AFB, handled sensitive material, Top Secret Clearance, later 'Q' clearance
+
+## Primary Material
+
 Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
 https://www.openminds.tv/pdf/ufo-files/DawnOfANewAge.pdf
 
@@ -76,3 +85,6 @@ https://www.amazon.com/Skinwalkers-Pentagon-Insiders-Account-Government-ebook/dp
 
 Theories of Everything with Curt Jaimungal "UFO" playlist, containing in-depth interviews with Luis Elizondo, Jacques Vallée, Avi Loeb, and more:<br>
 https://www.youtube.com/playlist?list=PLZ7ikzmc6zlPd4Y5pg8XtzS_0-ChSTeJ6##
+
+Christopher Mellon (20 years in the U.S. Intelligence Community, Minority Staff Director of the Senate Intelligence Committee, Deputy Assistant Secretary of Defense for Intelligence)<br>
+https://www.christophermellon.net/
