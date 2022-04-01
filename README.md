@@ -134,3 +134,5 @@ https://www.esd.whs.mil/Portals/54/Documents/FOID/Reading%20Room/UFOsandUAPs/ADA
 The FBI-CIA-UFO Connection: The Hidden UFO Activities of USA Intelligence Agencies -  [Dr. Bruce Maccabee](http://brumac.mysite.com/)<br>
 https://www.amazon.com/FBI-CIA-UFO-Connection-Activities-Intelligence-Agencies/dp/1502317214
 
+List of interviews with Lue Elizondo<br>
+https://github.com/noncoding3torus/ReferenceMaterial/
