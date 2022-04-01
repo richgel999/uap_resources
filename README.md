@@ -7,6 +7,7 @@ Some of the key UAP related reading/listening materials are from Corso, Crain, E
 - Dr. Eric W. Davis PhD - Astrophysicist (University of Arizona) with a background in Quantum Field Theory and Relativity, Consultant to US Air Force (AFRL)/DoD/DoE/NASA, and Senior Science Advisor at the Institute for Advanced Studies in Austin ([EarthTech](https://earthtech.org/pubs/davis/))
 - Dr. Hal E. Puthoff PhD - Electrical Engineering (Stanford), Director of the Institute for Advanced Studies at Austin, Chairman of the Science Advisory Board of Bigelow Aerospace ([Wikipedia](https://en.wikipedia.org/wiki/Harold_E._Puthoff) and [EarthTech](https://earthtech.org/pubs/puthoff/))
 - June Crain - Clerk/Stenographer Wright-Patterson AFB, handled sensitive material, Top Secret Clearance, later 'Q' clearance ([Transcript](https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf), [book](https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG))
+- John Ramirez - Intelligence Analyst, GS-15 CIA Directorate of Science and Technology, Directorate of Intelligence, and the ODNI National Counterproliferation Center (NCPC). Chief, ELINT Analysis Branch specializing in ballistic missile defense.
 
 ## Key Material
 
