@@ -1,5 +1,5 @@
 # uap_stuff
-Some of the key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Hastings,  a few 1940's-1950's-era memo leaks, the declassified Austrialian report, and some other things. I believe this material, taken as a whole, tells a reasonably coherant picture of UAP C/R's (crash recoveries) since the early 40's and an active R&D program that seeded US industry with exotic materials:
+Some of the key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Hastings,  a few 1940's-1950's-era memo leaks, the declassified Austrialian report, and some other things. I believe this material, taken as a whole, tells a reasonably coherant picture of UAP C/R's (crash recoveries) since the early 40's and an active R&D program that seeded US industry with exotic materials.
 
 ## List of key names/witnesses
 Lt. Col. Philip J. Corso - Chief Foreign Technology Division of the United States Department of Defense<br>
