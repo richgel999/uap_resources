@@ -93,3 +93,6 @@ https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf
 
 Ramey memo photo analysis:<br>
 http://kevinrandle.blogspot.com/2018/12/the-ramey-memo-latest-information.html
+
+Stanton Friedman on the 70+ Year UAP Coverup<br>
+https://www.stantonfriedman.com/index.php?ptp=articles&fdt=2005.05.15
