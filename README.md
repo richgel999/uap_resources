@@ -105,3 +105,6 @@ https://www.youtube.com/watch?v=X3CcaP3yAkc
 
 Luis Elizondo on Unidentified Aerial Phenomena - British GQ<br>
 https://www.youtube.com/watch?v=4yX6ETCKyPo
+
+Admiral Wilson Leak Analysis<br>
+https://www.theblackvault.com/casefiles/the-admiral-wilson-leak-an-analysis/
