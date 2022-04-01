@@ -70,10 +70,13 @@ https://www.youtube.com/watch?v=zFQtYfOmxxs
 
 _TODO: This is not a complete list._<br>
 
-The Majestic Documents Prior to 1948:<br>
+Mounting Evidence For Authenticity of MJ-12 Documents, by Robert M. Wood
+https://majesticdocuments.com/pdf/rmwood_mufon2001.pdf
+
+List of Majestic (MJ-12) Documents Prior to 1948:<br>
 https://majesticdocuments.com/documents/majestic-documents/documents-dated-prior-to-1948/
 
-The Majestic Documents - Summary Arguments<br>
+The Majestic (MJ-12) Documents - Summary Arguments<br>
 https://majesticdocuments.com/documents/document-authentication/summary-arguments/
 
 Oppenheimer-Einstein Draft, June 1947<br>
