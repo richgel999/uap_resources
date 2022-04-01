@@ -91,5 +91,3 @@ https://www.christophermellon.net/
 
 Transcript of interview with June Crain in Ocean Shores, WA<br>
 https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf
-
-https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf
