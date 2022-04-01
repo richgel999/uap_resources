@@ -55,7 +55,7 @@ https://www.ufohastings.com/<br>
 https://www.amazon.com/UFOs-Nukes-Extraordinary-Encounters-Nuclear/dp/1544822197<br>
 https://www.amazon.com/UFOs-Nukes-Secret-Link-Revealed/dp/B06XWQ2NWX/
 
-In Plain Sight: An investigation into UFOs and impossible science, 2021/08/01:<br>
+In Plain Sight: An Investigation Into UFOs and Impossible Science, 2021/08/01:<br>
 https://www.amazon.com/Plain-Sight-investigation-impossible-science-ebook/dp/B08VYR4DZ6/
 
 GS-15 CIA Officer John Ramirez - Navigating the US Intelligence Community<br>
