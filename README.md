@@ -56,9 +56,6 @@ https://www.ufohastings.com/<br>
 https://www.amazon.com/UFOs-Nukes-Extraordinary-Encounters-Nuclear/dp/1544822197<br>
 https://www.amazon.com/UFOs-Nukes-Secret-Link-Revealed/dp/B06XWQ2NWX/
 
-In Plain Sight: An Investigation Into UFOs and Impossible Science, 2021/08/01:<br>
-https://www.amazon.com/Plain-Sight-investigation-impossible-science-ebook/dp/B08VYR4DZ6/
-
 GS-15 CIA Officer John Ramirez - Navigating the US Intelligence Community<br>
 https://www.youtube.com/watch?v=cQfySY_2BLc<br>
 https://drive.google.com/file/d/1ma2qEq8Y4lNyTrNoh0_SelgxqqddZkxj/view
@@ -103,6 +100,9 @@ Rockefeller sponsored world leader briefing document:<br>
 https://www.openminds.tv/wp-content/uploads/Rockefeller-Briefing-Document.pdf
 
 ## Other Misc. Resources:
+
+In Plain Sight: An Investigation Into UFOs and Impossible Science, 2021/08/01:<br>
+https://www.amazon.com/Plain-Sight-investigation-impossible-science-ebook/dp/B08VYR4DZ6/
 
 Skinwalkers at the Pentagon: An Insiders' Account of the Secret Government UFO Program, 2021/10/01:<br>
 https://www.amazon.com/Skinwalkers-Pentagon-Insiders-Account-Government-ebook/dp/B09J484KYD/
