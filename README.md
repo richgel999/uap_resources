@@ -4,8 +4,8 @@ Some of the key UAP related reading/listening materials are from Corso, Crain, E
 ## Key Personnel/Witnesses (all have/had clearances)
 - Lt. Col. Philip J. Corso - Chief [Foreign Technology Division of the United States DoD](https://en.wikipedia.org/wiki/National_Air_and_Space_Intelligence_Center#Foreign_Technology_Division), Battalion Commander of European Air Defense, Chief of the US Counter Intelligence Corps in Rome ([Wikipedia](https://en.wikipedia.org/wiki/Philip_J._Corso) and [Army Form 66](http://www.cufon.org/cufon/corso_da66.htm))
 - Luis “Lue” Elizondo - Program Manager/Director for [AATIP](https://www.nytimes.com/2017/12/16/us/politics/pentagon-program-ufo-harry-reid.html), Career Intelligence Officer US Army and DoD, Counterintelligence Special Agent US Army ([Official Page](https://luiselizondo-official.com/), [Wikipedia](https://en.wikipedia.org/wiki/Luis_Elizondo))
-- Dr. Eric W. Davis PhD - Astrophysicist (University of Arizona) with a background in Quantum Field Theory and Relativity, Consultant to US Air Force (AFRL)/DoD/DoE/NASA, and Senior Science Advisor at the Institute for Advanced Studies in Austin ([Earthtech](https://earthtech.org/pubs/davis/))
-- Dr. Hal E. Puthoff PhD - Electrical Engineering (Stanford), Director of the Institute for Advanced Studies at Austin, Chairman of the Science Advisory Board of Bigelow Aerospace ([Wikipedia](https://en.wikipedia.org/wiki/Harold_E._Puthoff) and [Earthtech](https://earthtech.org/pubs/puthoff/))
+- Dr. Eric W. Davis PhD - Astrophysicist (University of Arizona) with a background in Quantum Field Theory and Relativity, Consultant to US Air Force (AFRL)/DoD/DoE/NASA, and Senior Science Advisor at the Institute for Advanced Studies in Austin ([EarthTech](https://earthtech.org/pubs/davis/))
+- Dr. Hal E. Puthoff PhD - Electrical Engineering (Stanford), Director of the Institute for Advanced Studies at Austin, Chairman of the Science Advisory Board of Bigelow Aerospace ([Wikipedia](https://en.wikipedia.org/wiki/Harold_E._Puthoff) and [EarthTech](https://earthtech.org/pubs/puthoff/))
 - June Crain - Clerk/Stenographer Wright-Patterson AFB, handled sensitive material, Top Secret Clearance, later 'Q' clearance ([Transcript](https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf), [book](https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG))
 
 ## Key Material
@@ -115,7 +115,7 @@ https://www.youtube.com/watch?v=4yX6ETCKyPo
 Admiral Wilson Leak Analysis<br>
 https://www.theblackvault.com/casefiles/the-admiral-wilson-leak-an-analysis/
 
-Dr. Eric Davis - Interview in 2013 at [Earthtech International Inc.](https://earthtech.org/)<br>
+Dr. Eric Davis - Interview in 2013 at [EarthTech International Inc.](https://earthtech.org/)<br>
 https://www.youtube.com/watch?v=mygOFMH6-Ts
 
 Iterview with Salvatore Pais (Aerospace engineer - Naval Air Station):<br>
