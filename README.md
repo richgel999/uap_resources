@@ -115,7 +115,7 @@ https://www.youtube.com/watch?v=4yX6ETCKyPo
 Admiral Wilson Leak Analysis<br>
 https://www.theblackvault.com/casefiles/the-admiral-wilson-leak-an-analysis/
 
-Dr. Eric Davis<br>
+Dr. Eric Davis - Interview in 2013 at [Earthtech International Inc.](https://earthtech.org/)<br>
 https://www.youtube.com/watch?v=mygOFMH6-Ts
 
 Iterview with Salvatore Pais (Aerospace engineer - Naval Air Station):<br>
