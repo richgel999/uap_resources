@@ -73,11 +73,11 @@ _TODO: This is not a complete list._<br>
 The Majestic Documents - Summary Arguments<br>
 https://majesticdocuments.com/documents/document-authentication/summary-arguments/
 
-Twining’s “White Hot” Report: Mission Assessment of Recovered Lenticular Aerodyne Objects, 19 September 1947<br>
-https://majesticdocuments.com/pdf/twining_whitehotreport.pdf
-
 Oppenheimer-Einstein Draft, June 1947<br>
 https://majesticdocuments.com/pdf/oppenheimer_einstein.pdf
+
+Twining’s “White Hot” Report: Mission Assessment of Recovered Lenticular Aerodyne Objects, 19 September 1947<br>
+https://majesticdocuments.com/pdf/twining_whitehotreport.pdf
 
 Franklin D. Roosevelt Memo on Non-Terrestrial Science and Technology, 22 Feb. 1944<br>
 https://majesticdocuments.com/pdf/fdr_22feb44.pdf
