@@ -117,3 +117,6 @@ https://www.youtube.com/watch?v=mygOFMH6-Ts
 
 Iterview with Salvatore Pais (Aerospace engineer - Naval Air Station):<br>
 https://www.youtube.com/watch?v=5E6QyAhTB3o
+
+US Air Force Foreign Technology Division - 7/24/1981 UAP sighting over several provinces in China
+https://www.esd.whs.mil/Portals/54/Documents/FOID/Reading%20Room/UFOsandUAPs/ADA128307_UFOsandUAPs.pdf?ver=2017-05-22-113419-807
