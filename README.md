@@ -72,7 +72,7 @@ https://majesticdocuments.com/pdf/oppenheimer_einstein.pdf
 Franklin D. Roosevelt Memo on Non-Terrestrial Science and Technology, 22 Feb. 1944<br>
 https://majesticdocuments.com/pdf/fdr_22feb44.pdf
 
-MJ12 Report, Summer 1952<br>
+MJ12 Report, Summer 1952 (Fifth Annual Report)<br>
 https://majesticdocuments.com/pdf/mj12_fifthannualreport.pdf
 
 ## References
