@@ -148,3 +148,6 @@ https://www.amazon.com/FBI-CIA-UFO-Connection-Activities-Intelligence-Agencies/d
 
 The Children of Roswell: A Seven-Decade Legacy of Fear, Intimidation, and Cover-Ups - by Thomas J. Carey, Donald R. Schmitt<br>
 https://www.amazon.com/Children-Roswell-Seven-Decade-Intimidation-Cover-Ups-ebook/dp/B07J1TCPSG
+
+ABOVE BLACK - Project Preserve Destiny - An Insider's Account of Alien Contact and Government Coverup, Dan Sherman<br>
+https://www.amazon.com/ABOVE-BLACK-Preserve-Insiders-Government-ebook/dp/B003L77MUU/ref=sr_1_1
