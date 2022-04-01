@@ -99,3 +99,6 @@ https://www.stantonfriedman.com/index.php?ptp=articles&fdt=2005.05.15
 
 Eric Davis on working for Pentagon UFO program - New York Post<br>
 https://www.youtube.com/watch?v=X3CcaP3yAkc
+
+Luis Elizondo on Unidentified Aerial Phenomena - British GQ<br>
+https://www.youtube.com/watch?v=4yX6ETCKyPo
