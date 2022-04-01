@@ -70,6 +70,9 @@ https://www.youtube.com/watch?v=zFQtYfOmxxs
 
 _TODO: This is not a complete list._<br>
 
+The Majestic Documents Prior to 1948:<br>
+https://majesticdocuments.com/documents/majestic-documents/documents-dated-prior-to-1948/
+
 The Majestic Documents - Summary Arguments<br>
 https://majesticdocuments.com/documents/document-authentication/summary-arguments/
 
