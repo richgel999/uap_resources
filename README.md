@@ -43,9 +43,6 @@ https://www.nytimes.com/2020/07/23/us/politics/pentagon-ufo-harry-reid-navy.html
 Dr Hal Puthoff Presentation & Q&A - C/R or "Crash Retrievals", and the new R&D program, DIA DIRD's<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
 
-DIA DIRD's (Defense Intelligence Agency's _Defense Intelligence Reference Documents_):<br>
-https://www.dropbox.com/sh/95tgfd2lljqrve3/AABKl58mfojoZjNiKEZAz8gMa
-
 Paul R. Hill (mid–twentieth-century American aerodynamicist, leading research and development engineer and manager for NASA/NACA),
 UAP's absolutely follow the laws of physics:<br>
 https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-1571747133/dp/1571747133/
@@ -77,13 +74,18 @@ https://majesticdocuments.com/pdf/fdr_22feb44.pdf
 MJ12 Report, Summer 1952<br>
 https://majesticdocuments.com/pdf/mj12_fifthannualreport.pdf
 
-## Other Misc. Resources:
+## References
+
+DIA DIRD's (Defense Intelligence Agency's _Defense Intelligence Reference Documents_):<br>
+https://www.dropbox.com/sh/95tgfd2lljqrve3/AABKl58mfojoZjNiKEZAz8gMa
 
 Scientific Intelligence - General - Unidentified Flying Objects:<br>
 https://recordsearch.naa.gov.au/SearchNRetrieve/Interface/ViewImage.aspx?B=30030606&S=1
 
 Rockefeller sponsored world leader briefing document:<br>
 https://www.openminds.tv/wp-content/uploads/Rockefeller-Briefing-Document.pdf
+
+## Other Misc. Resources:
 
 Skinwalkers at the Pentagon: An Insiders' Account of the Secret Government UFO Program, 2021/10/01:<br>
 https://www.amazon.com/Skinwalkers-Pentagon-Insiders-Account-Government-ebook/dp/B09J484KYD/
