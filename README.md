@@ -47,7 +47,7 @@ Paul R. Hill (mid–twentieth-century American aerodynamicist, leading research 
 UAP's absolutely follow the laws of physics:<br>
 https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-1571747133/dp/1571747133/
 
-UAP's and Nukes:<br>
+UAP's and Nukes - Robert L. Hastings is the world’s foremost researcher on the subject of UFO activity at nuclear weapons sites.<br>
 https://www.ufohastings.com/<br>
 https://www.amazon.com/UFOs-Nukes-Extraordinary-Encounters-Nuclear/dp/1544822197<br>
 https://www.amazon.com/UFOs-Nukes-Secret-Link-Revealed/dp/B06XWQ2NWX/
