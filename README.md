@@ -56,7 +56,8 @@ In Plain Sight: An Investigation Into UFOs and Impossible Science, 2021/08/01:<b
 https://www.amazon.com/Plain-Sight-investigation-impossible-science-ebook/dp/B08VYR4DZ6/
 
 GS-15 CIA Officer John Ramirez - Navigating the US Intelligence Community<br>
-https://www.youtube.com/watch?v=cQfySY_2BLc
+https://www.youtube.com/watch?v=cQfySY_2BLc<br>
+https://drive.google.com/file/d/1ma2qEq8Y4lNyTrNoh0_SelgxqqddZkxj/view
 
 ## Key Leaked Reports/Memos:
 
