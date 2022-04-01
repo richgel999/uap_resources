@@ -1,4 +1,4 @@
-# uap_stuff
+# Key UAP Resources
 Some of the key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Hastings,  a few 1940's-1950's-era memo leaks, the declassified Austrialian report, and some other things. I believe this material, taken as a whole, tells a reasonably coherant picture of UAP C/R's (crash recoveries) since the early 40's and an active R&D program that seeded US industry with exotic materials.
 
 ## List of key names/witnesses (all have/had clearances)
@@ -8,7 +8,7 @@ Dr. Eric Davis - a research physicist at the Institute for Advanced Studies in A
 Luis “Lue” Elizondo - Program Manager/Director for AATIP, Career Intelligence Officer US Army and DoD<br>
 June Crain - Clerk/Stenographer Wright-Patterson AFB, handled sensitive material, Top Secret Clearance, later 'Q' clearance
 
-## Primary Material
+## Key Material
 
 Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
 https://www.openminds.tv/pdf/ufo-files/DawnOfANewAge.pdf
@@ -55,7 +55,9 @@ https://www.amazon.com/UFOs-Nukes-Secret-Link-Revealed/dp/B06XWQ2NWX/
 In Plain Sight: An investigation into UFOs and impossible science, 2021/08/01:<br>
 https://www.amazon.com/Plain-Sight-investigation-impossible-science-ebook/dp/B08VYR4DZ6/
 
-## Leaked reports/memos:
+## Key Leaked Reports/Memos:
+
+TODO: This is not a complete list.<br>
 
 Twining’s “White Hot” Report: Mission Assessment of Recovered Lenticular Aerodyne Objects, 19 September 1947<br>
 https://majesticdocuments.com/pdf/twining_whitehotreport.pdf
@@ -68,9 +70,6 @@ https://majesticdocuments.com/pdf/fdr_22feb44.pdf
 
 MJ12 Report, Summer 1952<br>
 https://majesticdocuments.com/pdf/mj12_fifthannualreport.pdf
-
-Ramey memo photo analysis:<br>
-http://kevinrandle.blogspot.com/2018/12/the-ramey-memo-latest-information.html
 
 ## Other misc resources:
 
@@ -91,3 +90,6 @@ https://www.christophermellon.net/
 
 Transcript of Clarkson interview with June Crain in Ocean Shores, WA<br>
 https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf
+
+Ramey memo photo analysis:<br>
+http://kevinrandle.blogspot.com/2018/12/the-ramey-memo-latest-information.html
