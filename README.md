@@ -4,7 +4,7 @@ Some of the key UAP related reading/listening materials are from Corso, Crain, E
 ## List of key names/witnesses (all have/had clearances)
 Lt. Col. Philip J. Corso - Chief Foreign Technology Division of the United States Department of Defense<br>
 Dr. Hal E. Puthoff - Director of the Institute for Advanced Studies at Austin, Chairman of the Science Advisory Board of Bigelow Aerospace<br>
-Dr. Eric Davis - a research physicist at the Institute for Advanced Studies in Austin<br>
+Dr. Eric Davis - Research physicist at the Institute for Advanced Studies in Austin<br>
 Luis “Lue” Elizondo - Program Manager/Director for AATIP, Career Intelligence Officer US Army and DoD<br>
 June Crain - Clerk/Stenographer Wright-Patterson AFB, handled sensitive material, Top Secret Clearance, later 'Q' clearance
 
