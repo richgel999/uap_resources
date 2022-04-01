@@ -147,4 +147,4 @@ The FBI-CIA-UFO Connection: The Hidden UFO Activities of USA Intelligence Agenci
 https://www.amazon.com/FBI-CIA-UFO-Connection-Activities-Intelligence-Agencies/dp/1502317214
 
 The Children of Roswell: A Seven-Decade Legacy of Fear, Intimidation, and Cover-Ups - by Thomas J. Carey, Donald R. Schmitt<br>
-https://www.amazon.com/Children-Roswell-Seven-Decade-Intimidation-Cover-Ups-ebook/dp/B07J1TCPSG/ref=sr_1_1?crid=18O5RCU9DCFU8
+https://www.amazon.com/Children-Roswell-Seven-Decade-Intimidation-Cover-Ups-ebook/dp/B07J1TCPSG
