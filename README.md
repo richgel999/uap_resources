@@ -77,7 +77,7 @@ https://majesticdocuments.com/pdf/fdr_22feb44.pdf
 MJ12 Report, Summer 1952<br>
 https://majesticdocuments.com/pdf/mj12_fifthannualreport.pdf
 
-## Other Misc. resources:
+## Other Misc. Resources:
 
 Scientific Intelligence - General - Unidentified Flying Objects:<br>
 https://recordsearch.naa.gov.au/SearchNRetrieve/Interface/ViewImage.aspx?B=30030606&S=1
