@@ -17,7 +17,7 @@ https://www.openminds.tv/pdf/ufo-files/DawnOfANewAge.pdf
 Book on Army R&D feeding exotic UAP-sourced materials to US industry, the R area crash recovery (C/R), by Corso and Birnes<br>
 https://www.amazon.com/Day-After-Roswell-William-Birnes-ebook/dp/B000FBJHT4/
 
-TELL MY STORY - June Crain: exotic materials, R C/R, Paperclip Scientists, very early SAP projects<br>
+TELL MY STORY - June Crain: exotic materials, R C/R, Paperclip Scientists, very early SAP projects, interviewed by police sergeant James Clarkson<br>
 https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG/
 
 Lue Elizondo, statement during interviews of "exotic materials"<br>
