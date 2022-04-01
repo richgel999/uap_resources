@@ -70,7 +70,7 @@ https://www.youtube.com/watch?v=zFQtYfOmxxs
 
 _TODO: This is not a complete list._<br>
 
-Mounting Evidence For Authenticity of MJ-12 Documents, by Robert M. Wood
+Mounting Evidence For Authenticity of MJ-12 Documents, by Robert M. Wood<br>
 https://majesticdocuments.com/pdf/rmwood_mufon2001.pdf
 
 List of Majestic (MJ-12) Documents Prior to 1948:<br>
