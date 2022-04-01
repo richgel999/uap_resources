@@ -34,14 +34,17 @@ https://www.youtube.com/watch?v=UnCjbN7LCCs
 DIA DIRD's (Defense Intelligence Agency's _Defense Intelligence Reference Documents_):<br>
 https://www.dropbox.com/sh/95tgfd2lljqrve3/AABKl58mfojoZjNiKEZAz8gMa
 
+Paul R. Hill (mid–twentieth-century American aerodynamicist, leading research and development engineer and manager for NASA/NACA),
+UAP's absolutely follow the laws of physics:<br>
+https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-1571747133/dp/1571747133/
+
+UAP's and Nukes:<br>
+https://www.ufohastings.com/<br>
+https://www.amazon.com/UFOs-Nukes-Extraordinary-Encounters-Nuclear/dp/1544822197<br>
+https://www.amazon.com/UFOs-Nukes-Secret-Link-Revealed/dp/B06XWQ2NWX/
+
 In Plain Sight: An investigation into UFOs and impossible science, 2021/08/01:<br>
 https://www.amazon.com/Plain-Sight-investigation-impossible-science-ebook/dp/B08VYR4DZ6/
-
-Skinwalkers at the Pentagon: An Insiders' Account of the Secret Government UFO Program, 2021/10/01:<br>
-https://www.amazon.com/Skinwalkers-Pentagon-Insiders-Account-Government-ebook/dp/B09J484KYD/
-
-Theories of Everything with Curt Jaimungal "UFO" playlist, containing in-depth interviews with Luis Elizondo, Jacques Vallée, Avi Loeb, and more:<br>
-https://www.youtube.com/playlist?list=PLZ7ikzmc6zlPd4Y5pg8XtzS_0-ChSTeJ6##
 
 ## Leaked reports/memos:
 
@@ -57,22 +60,19 @@ https://majesticdocuments.com/pdf/fdr_22feb44.pdf
 MJ12 Report, Summer 1952<br>
 https://majesticdocuments.com/pdf/mj12_fifthannualreport.pdf
 
-UAP's and Nukes:<br>
-https://www.ufohastings.com/<br>
-https://www.amazon.com/UFOs-Nukes-Extraordinary-Encounters-Nuclear/dp/1544822197<br>
-https://www.amazon.com/UFOs-Nukes-Secret-Link-Revealed/dp/B06XWQ2NWX/
+Ramey memo photo analysis:<br>
+http://kevinrandle.blogspot.com/2018/12/the-ramey-memo-latest-information.html
+
+## Other misc resources:
 
 Scientific Intelligence - General - Unidentified Flying Objects:<br>
 https://recordsearch.naa.gov.au/SearchNRetrieve/Interface/ViewImage.aspx?B=30030606&S=1
 
-Ramey memo photo analysis:<br>
-http://kevinrandle.blogspot.com/2018/12/the-ramey-memo-latest-information.html
-
-Paul R. Hill (mid–twentieth-century American aerodynamicist, leading research and development engineer and manager for NASA/NACA),
-UAP's absolutely follow the laws of physics:<br>
-https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-1571747133/dp/1571747133/
-
-## Other misc resources:
-
 Rockefeller sponsored world leader briefing document:<br>
 https://www.openminds.tv/wp-content/uploads/Rockefeller-Briefing-Document.pdf
+
+Skinwalkers at the Pentagon: An Insiders' Account of the Secret Government UFO Program, 2021/10/01:<br>
+https://www.amazon.com/Skinwalkers-Pentagon-Insiders-Account-Government-ebook/dp/B09J484KYD/
+
+Theories of Everything with Curt Jaimungal "UFO" playlist, containing in-depth interviews with Luis Elizondo, Jacques Vallée, Avi Loeb, and more:<br>
+https://www.youtube.com/playlist?list=PLZ7ikzmc6zlPd4Y5pg8XtzS_0-ChSTeJ6##
