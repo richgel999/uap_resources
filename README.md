@@ -6,7 +6,7 @@ Some of the key UAP related reading/listening materials are from Corso, Crain, E
 - Dr. Hal E. Puthoff - Director of the Institute for Advanced Studies at Austin, Chairman of the Science Advisory Board of Bigelow Aerospace ([Wikipedia](https://en.wikipedia.org/wiki/Harold_E._Puthoff) and [Earthtech](https://earthtech.org/pubs/puthoff/))
 - Dr. Eric W. Davis - Research physicist and Senior Science Advisor at the Institute for Advanced Studies in Austin ([Earthtech](https://earthtech.org/pubs/davis/))
 - Luis “Lue” Elizondo - Program Manager/Director for AATIP, Career Intelligence Officer US Army and DoD ([Official Page](https://luiselizondo-official.com/), [Wikipedia](https://en.wikipedia.org/wiki/Luis_Elizondo))
-- June Crain - Clerk/Stenographer Wright-Patterson AFB, handled sensitive material, Top Secret Clearance, later 'Q' clearance ([Transcript](https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf))
+- June Crain - Clerk/Stenographer Wright-Patterson AFB, handled sensitive material, Top Secret Clearance, later 'Q' clearance ([Transcript](https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf), [book](https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG))
 
 ## Key Material
 
