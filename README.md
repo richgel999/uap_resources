@@ -124,6 +124,6 @@ https://www.youtube.com/watch?v=5E6QyAhTB3o
 US Air Force Foreign Technology Division - 7/24/1981 sightings over several provinces in China<br>
 https://www.esd.whs.mil/Portals/54/Documents/FOID/Reading%20Room/UFOsandUAPs/ADA128307_UFOsandUAPs.pdf?ver=2017-05-22-113419-807
 
-The FBI-CIA-UFO Connection: The Hidden UFO Activities of USA Intelligence Agencies -  Dr. Bruce Maccabee<br>
+The FBI-CIA-UFO Connection: The Hidden UFO Activities of USA Intelligence Agencies -  [Dr. Bruce Maccabee](http://brumac.mysite.com/)<br>
 https://www.amazon.com/FBI-CIA-UFO-Connection-Activities-Intelligence-Agencies/dp/1502317214
 
