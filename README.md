@@ -60,9 +60,6 @@ GS-15 CIA Officer John Ramirez - Navigating the US Intelligence Community<br>
 https://www.youtube.com/watch?v=cQfySY_2BLc<br>
 https://drive.google.com/file/d/1ma2qEq8Y4lNyTrNoh0_SelgxqqddZkxj/view
 
-Interview with John Ramirez, 12/3/2021:<br>
-https://www.youtube.com/watch?v=zFQtYfOmxxs
-
 ## Key Leaked Reports/Memos:
 
 _TODO: This is not a complete list._<br>
@@ -153,3 +150,6 @@ ABOVE BLACK - Project Preserve Destiny - An Insider's Account of Alien Contact a
 https://www.aboveblack.com/index.html<br>
 https://www.amazon.com/ABOVE-BLACK-Preserve-Insiders-Government-ebook/dp/B003L77MUU/ref=sr_1_1<br>
 https://thinkaboutit.site/ufos/project-preserve-destiny/<br>
+
+Interview with John Ramirez, 12/3/2021:<br>
+https://www.youtube.com/watch?v=zFQtYfOmxxs
