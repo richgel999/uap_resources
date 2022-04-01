@@ -55,6 +55,9 @@ https://www.amazon.com/UFOs-Nukes-Secret-Link-Revealed/dp/B06XWQ2NWX/
 In Plain Sight: An investigation into UFOs and impossible science, 2021/08/01:<br>
 https://www.amazon.com/Plain-Sight-investigation-impossible-science-ebook/dp/B08VYR4DZ6/
 
+GS-15 CIA Officer John Ramirez - Navigating the US Intelligence Community<br>
+https://www.youtube.com/watch?v=cQfySY_2BLc
+
 ## Key Leaked Reports/Memos:
 
 TODO: This is not a complete list.<br>
