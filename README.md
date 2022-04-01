@@ -96,3 +96,6 @@ http://kevinrandle.blogspot.com/2018/12/the-ramey-memo-latest-information.html
 
 Stanton Friedman on the 70+ Year UAP Coverup<br>
 https://www.stantonfriedman.com/index.php?ptp=articles&fdt=2005.05.15
+
+Eric Davis on working for Pentagon UFO program - New York Post<br>
+https://www.youtube.com/watch?v=X3CcaP3yAkc
