@@ -2,7 +2,7 @@
 Some of the key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Hastings,  a few 1940's-1950's-era memo leaks, the declassified Austrialian report, and some other things. I believe this material, taken as a whole, tells a reasonably coherent picture of UAP C/R's ("crash recoveries") since the early 40's and an active R&D program that seeded US industry with "exotic materials".
 
 ## List of key names/witnesses (all have/had clearances)
-Lt. Col. Philip J. Corso - Chief Foreign Technology Division of the United States Department of Defense ([here](https://en.wikipedia.org/wiki/Philip_J._Corso) and [here](http://www.cufon.org/cufon/corso_da66.htm)<br>
+Lt. Col. Philip J. Corso - Chief Foreign Technology Division of the United States Department of Defense ([here](https://en.wikipedia.org/wiki/Philip_J._Corso) and [here](http://www.cufon.org/cufon/corso_da66.htm))<br>
 Dr. Hal E. Puthoff - Director of the Institute for Advanced Studies at Austin, Chairman of the Science Advisory Board of Bigelow Aerospace<br>
 Dr. Eric Davis - Research physicist at the Institute for Advanced Studies in Austin<br>
 Luis “Lue” Elizondo - Program Manager/Director for AATIP, Career Intelligence Officer US Army and DoD<br>
