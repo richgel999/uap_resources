@@ -70,6 +70,9 @@ https://www.youtube.com/watch?v=zFQtYfOmxxs
 
 _TODO: This is not a complete list._<br>
 
+The Majestic Documents - Summary Arguments<br>
+https://majesticdocuments.com/documents/document-authentication/summary-arguments/
+
 Twining’s “White Hot” Report: Mission Assessment of Recovered Lenticular Aerodyne Objects, 19 September 1947<br>
 https://majesticdocuments.com/pdf/twining_whitehotreport.pdf
 
