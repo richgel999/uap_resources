@@ -108,3 +108,7 @@ https://www.youtube.com/watch?v=4yX6ETCKyPo
 
 Admiral Wilson Leak Analysis<br>
 https://www.theblackvault.com/casefiles/the-admiral-wilson-leak-an-analysis/
+
+Dr. Eric Davis<br>
+https://www.youtube.com/watch?v=mygOFMH6-Ts
+
