@@ -177,7 +177,7 @@ https://www.amazon.com/Children-Roswell-Seven-Decade-Intimidation-Cover-Ups-eboo
 
 ## Wildcards 
 
-_This category is the rough equivalent to Corso's "Nut File". This information seems to fit into the puzzle. It may be real, or it may be nuts. Can't tell._
+_This category is the rough equivalent to Corso's "Nut File". This information seems to fit into the puzzle. It may be real, or it may be nuts. Can't tell - currently._
 
 "ABOVE BLACK - Project Preserve Destiny - An Insider's Account of Alien Contact and Government Coverup", Dan Sherman (USAF, worked for the NSA as an Electronic Intelligence Specialist)<br>
 https://www.aboveblack.com/index.html<br>
