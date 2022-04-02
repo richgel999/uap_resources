@@ -131,7 +131,8 @@ https://majesticdocuments.com/pdf/fdr_22feb44.pdf
 MJ12 Report, Summer 1952 (Fifth Annual Report)<br>
 https://majesticdocuments.com/pdf/mj12_fifthannualreport.pdf
 
-“Pentacle Memorandum” - found by early researcher Jacques Vallée<br>
+“Pentacle Memorandum” - a key 1950's era document found by early researcher Jacques Vallée, officially declassified<br>
+http://www.greenwoodufoarchive.com/Just_Cause_Greenwood/Just_Cause_1993_03_n35.pdf<br>
 http://nicap.org/papers/Pentacle/pentacle_coppens.pdf
 
 ## References, Briefing Documents
