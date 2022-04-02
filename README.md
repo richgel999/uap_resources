@@ -108,7 +108,7 @@ https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-15717
 
 ## Key Leaked Reports/Memos
 
-_Mostly Majestic/MJ-12 Documents. TODO: This is not a complete list._<br>
+_Majestic/MJ-12 Documents. TODO: This is not a complete list._<br>
 
 Mounting Evidence For Authenticity of MJ-12 Documents, by Robert M. Wood<br>
 https://majesticdocuments.com/pdf/rmwood_mufon2001.pdf
@@ -131,11 +131,14 @@ https://majesticdocuments.com/pdf/fdr_22feb44.pdf
 MJ12 Report, Summer 1952 (Fifth Annual Report)<br>
 https://majesticdocuments.com/pdf/mj12_fifthannualreport.pdf
 
-Pentacle Memorandum: A key 1950's era document found by early researcher Jacques Vallée, officially declassified. Vallée stated in [The Phenomenon](https://www.amazon.com/Phenomenon-John-Podesta/dp/B08HR9BVNM/ref=sr_1_1) documentary that this document "changed his life". Document was signed by H.C. Cross (Dr. Howard C. Cross) - Director of Exotic Metallergy - Battelle Memorial Institute - US National Labs. 
+## Vallée: Pentacle Memorandum
+
+This is a key 1950's era document found by early researcher Jacques Vallée, which he pushed to get officially declassified. Vallée stated in [The Phenomenon](https://www.amazon.com/Phenomenon-John-Podesta/dp/B08HR9BVNM/ref=sr_1_1) documentary that this document "changed his life". Document was signed by H.C. Cross (Dr. Howard C. Cross) - Director of Exotic Metallergy - Battelle Memorial Institute - US National Labs. 
 http://www.greenwoodufoarchive.com/Just_Cause_Greenwood/Just_Cause_1993_03_n35.pdf<br>
 http://nicap.org/papers/Pentacle/pentacle_coppens.pdf<br>
 https://www.theufochronicles.com/2009/06/roswell-metal-scientist-curious-dr.html<br>
-https://www.ufoexplorations.com/roswell-metal-scientist-dr-cross
+https://www.ufoexplorations.com/roswell-metal-scientist-dr-cross<br>
+https://www.theufochronicles.com/2009/06/roswell-metal-scientist-curious-dr.html
 
 ## References, Briefing Documents
 
