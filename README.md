@@ -149,7 +149,7 @@ https://www.dropbox.com/sh/95tgfd2lljqrve3/AABKl58mfojoZjNiKEZAz8gMa
 Scientific Intelligence - General - Unidentified Flying Objects - Pre-Disclosure:<br>
 https://recordsearch.naa.gov.au/SearchNRetrieve/Interface/ViewImage.aspx?B=30030606&S=1
 
-Rockefeller sponsored world leader briefing document - Pre-Disclosure:<br>
+[Laurance Rockefeller](https://en.wikipedia.org/wiki/Laurance_Rockefeller). Established the UFO Disclosure Initiative to the Clinton White House. Sponsored a world leader briefing document - Pre-Disclosure:<br>
 https://www.openminds.tv/wp-content/uploads/Rockefeller-Briefing-Document.pdf
 
 ## Other Misc. Resources
