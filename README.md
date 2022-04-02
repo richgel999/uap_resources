@@ -133,7 +133,7 @@ https://majesticdocuments.com/pdf/mj12_fifthannualreport.pdf
 
 ## Key Statement by Astronaut Dr. Edgar Mitchell
 
-Astronaut Dr. Edgar Mitchell - Lunar Module Pilot of Apollo 14, he spent nine hours working on the lunar surface in the Fra Mauro Highlands region, making him the sixth person to walk on the Moon.<br>
+Astronaut [Dr. Edgar Mitchell](https://en.wikipedia.org/wiki/Edgar_Mitchell) - Lunar Module Pilot of Apollo 14, he spent nine hours working on the lunar surface in the Fra Mauro Highlands region, making him the sixth person to walk on the Moon.<br>
 https://www.youtube.com/watch?v=yeBtSnRGSus
 
 Transcript: "There have been ET visitation. There have been crashed craft. 
