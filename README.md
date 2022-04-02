@@ -13,6 +13,8 @@ Some of the key UAP related reading/listening materials are from Corso, Crain, E
 
 ## Key Material (All Have/Had Clearances)
 
+_Statements/information from the people with clearances_
+
 ### President Obama
 President Obama: "There's footage and records of objects in the skies that we don't know exactly what they are" - 5/20/2021<br>
 https://www.youtube.com/watch?v=u1hNYs55sqs
@@ -75,6 +77,8 @@ https://drive.google.com/file/d/1ma2qEq8Y4lNyTrNoh0_SelgxqqddZkxj/view
 
 ## Key Books/Documentaries
 
+_Core information about the topic._
+
 ### Hastings
 UAP's and Nukes - Robert L. Hastings is the world’s foremost researcher on the subject of UFO activity at nuclear weapons sites.<br>
 https://www.ufohastings.com/<br>
@@ -88,7 +92,7 @@ https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-15717
 
 ## Key Leaked Reports/Memos
 
-_TODO: This is not a complete list._<br>
+_Majestic Documents. TODO: This is not a complete list._<br>
 
 Mounting Evidence For Authenticity of MJ-12 Documents, by Robert M. Wood<br>
 https://majesticdocuments.com/pdf/rmwood_mufon2001.pdf
@@ -116,13 +120,15 @@ https://majesticdocuments.com/pdf/mj12_fifthannualreport.pdf
 DIA DIRD's (Defense Intelligence Agency's _Defense Intelligence Reference Documents_):<br>
 https://www.dropbox.com/sh/95tgfd2lljqrve3/AABKl58mfojoZjNiKEZAz8gMa
 
-Scientific Intelligence - General - Unidentified Flying Objects:<br>
+Scientific Intelligence - General - Unidentified Flying Objects - Pre-Disclosure:<br>
 https://recordsearch.naa.gov.au/SearchNRetrieve/Interface/ViewImage.aspx?B=30030606&S=1
 
-Rockefeller sponsored world leader briefing document:<br>
+Rockefeller sponsored world leader briefing document - Pre-Disclosure:<br>
 https://www.openminds.tv/wp-content/uploads/Rockefeller-Briefing-Document.pdf
 
 ## Other Misc. Resources
+
+_Useful/educational material._
 
 In Plain Sight: An Investigation Into UFOs and Impossible Science, 2021/08/01:<br>
 https://www.amazon.com/Plain-Sight-investigation-impossible-science-ebook/dp/B08VYR4DZ6/
@@ -171,7 +177,7 @@ https://www.youtube.com/watch?v=zFQtYfOmxxs
 
 ## Wildcards 
 
-_Note: This category is the rough equivalent to Corso's "Nut File". This information seems to fit into the puzzle. It may be real, or it may be nuts. Can't tell._
+_This category is the rough equivalent to Corso's "Nut File". This information seems to fit into the puzzle. It may be real, or it may be nuts. Can't tell._
 
 "ABOVE BLACK - Project Preserve Destiny - An Insider's Account of Alien Contact and Government Coverup", Dan Sherman (USAF, worked for the NSA as an Electronic Intelligence Specialist)<br>
 https://www.aboveblack.com/index.html<br>
