@@ -184,6 +184,9 @@ https://www.amazon.com/Children-Roswell-Seven-Decade-Intimidation-Cover-Ups-eboo
 _This category is the rough equivalent to Corso's "Nut File". This information seems to fit into the puzzle. It may be real, or it may be nuts. Can't tell - currently._
 
 "ABOVE BLACK - Project Preserve Destiny - An Insider's Account of Alien Contact and Government Coverup", Dan Sherman (USAF, worked for the NSA as an Electronic Intelligence Specialist)<br>
+
+"During his twelve years in service he was recognised for heroism and has been decorated with the AF Commendation Medal, as well as the AF Achievement Medal with two oak leaf clusters and was honoured for service in the Persian Gulf War."
+
 https://www.aboveblack.com/index.html<br>
 https://www.amazon.com/ABOVE-BLACK-Preserve-Insiders-Government-ebook/dp/B003L77MUU/ref=sr_1_1<br>
 https://thinkaboutit.site/ufos/project-preserve-destiny/<br>
