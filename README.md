@@ -47,6 +47,9 @@ https://pastebin.com/MFvwFq2W
 List of interviews with Lue Elizondo, others<br>
 https://github.com/noncoding3torus/ReferenceMaterial/
 
+Luis Elizondo on Unidentified Aerial Phenomena - British GQ<br>
+https://www.youtube.com/watch?v=4yX6ETCKyPo
+
 _TODO: More Elizondo interviews (there are so many it's hard for me to boil it down to a small key list)._
 
 ### Davis
@@ -66,6 +69,12 @@ https://www.nytimes.com/2020/07/23/us/politics/pentagon-ufo-harry-reid-navy.html
 Interview with Eric Davis on working for Pentagon UFO program - New York Post<br>
 https://www.youtube.com/watch?v=X3CcaP3yAkc
 
+Dr. Eric Davis - Interview in 2013 at [EarthTech International Inc.](https://earthtech.org/)<br>
+https://www.youtube.com/watch?v=mygOFMH6-Ts
+
+Dr. Eric Davis - Interview on Warp-Drives and FTL (2006)<br>
+https://www.youtube.com/watch?v=lVkTuFf2QsU
+
 ### Puthoff
 Dr Hal Puthoff Presentation & Q&A - C/R or "Crash Retrievals", the new R&D program, DIA DIRD's<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
@@ -74,6 +83,9 @@ https://www.youtube.com/watch?v=UnCjbN7LCCs
 GS-15 CIA Officer John Ramirez - Navigating the US Intelligence Community<br>
 https://www.youtube.com/watch?v=cQfySY_2BLc<br>
 https://drive.google.com/file/d/1ma2qEq8Y4lNyTrNoh0_SelgxqqddZkxj/view
+
+Interview with John Ramirez, 12/3/2021:<br>
+https://www.youtube.com/watch?v=zFQtYfOmxxs
 
 ## Key Books/Documentaries
 
@@ -148,22 +160,13 @@ http://kevinrandle.blogspot.com/2018/12/the-ramey-memo-latest-information.html
 Stanton Friedman on the 70+ Year UAP Coverup<br>
 https://www.stantonfriedman.com/index.php?ptp=articles&fdt=2005.05.15
 
-Luis Elizondo on Unidentified Aerial Phenomena - British GQ<br>
-https://www.youtube.com/watch?v=4yX6ETCKyPo
-
 Admiral Wilson Leak Analysis<br>
 https://www.theblackvault.com/casefiles/the-admiral-wilson-leak-an-analysis/
-
-Dr. Eric Davis - Interview in 2013 at [EarthTech International Inc.](https://earthtech.org/)<br>
-https://www.youtube.com/watch?v=mygOFMH6-Ts
-
-Dr. Eric Davis - Interview on Warp-Drives and FTL (2006)<br>
-https://www.youtube.com/watch?v=lVkTuFf2QsU
 
 Interview with Salvatore Pais (Physicist and Aerospace Engineer - Naval Air Station):<br>
 https://www.youtube.com/watch?v=5E6QyAhTB3o
 
-US Air Force Foreign Technology Division - 7/24/1981, likely not UAP, sightings over several provinces in China<br>
+US Air Force Foreign Technology Division - 7/24/1981, likely not UAP, sightings over several provinces in China, notice the cover page<br>
 https://www.esd.whs.mil/Portals/54/Documents/FOID/Reading%20Room/UFOsandUAPs/ADA128307_UFOsandUAPs.pdf?ver=2017-05-22-113419-807
 
 The FBI-CIA-UFO Connection: The Hidden UFO Activities of USA Intelligence Agencies -  [Dr. Bruce Maccabee](http://brumac.mysite.com/) (Physicist, Naval Surface Warfare Center)<br>
@@ -171,9 +174,6 @@ https://www.amazon.com/FBI-CIA-UFO-Connection-Activities-Intelligence-Agencies/d
 
 The Children of Roswell: A Seven-Decade Legacy of Fear, Intimidation, and Cover-Ups - by Thomas J. Carey, Donald R. Schmitt<br>
 https://www.amazon.com/Children-Roswell-Seven-Decade-Intimidation-Cover-Ups-ebook/dp/B07J1TCPSG
-
-Interview with John Ramirez, 12/3/2021:<br>
-https://www.youtube.com/watch?v=zFQtYfOmxxs
 
 ## Wildcards 
 
