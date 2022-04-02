@@ -200,6 +200,9 @@ https://www.amazon.com/FBI-CIA-UFO-Connection-Activities-Intelligence-Agencies/d
 The Children of Roswell: A Seven-Decade Legacy of Fear, Intimidation, and Cover-Ups - by Thomas J. Carey, Donald R. Schmitt<br>
 https://www.amazon.com/Children-Roswell-Seven-Decade-Intimidation-Cover-Ups-ebook/dp/B07J1TCPSG
 
+Massive Twitter thread by @kentbye with the latest developments<br>
+https://twitter.com/kentbye/status/943238420037431297
+
 ## Documentaries
 
 "The Phenomenon"<br>
