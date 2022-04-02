@@ -53,7 +53,7 @@ https://www.youtube.com/watch?v=k2gjPRv4E7s
 Clip of Eric W. Davis - Demand UAP Transparency - where he continues spilling the beans on the UAP C/R R&D Program<br>
 https://www.youtube.com/watch?v=x4-JfM4rkRY
 
-Full Interview with Dr. Eric Davis<br>
+Interview with Dr. Eric Davis - 4/30/19<br>
 https://www.youtube.com/watch?v=IeyBTChcTe4
 
 Dr. Eric Davis: Classified Briefing to the Senate Armed Services Committee on 10/21/19<br>
