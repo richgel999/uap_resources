@@ -68,10 +68,12 @@ https://www.youtube.com/watch?v=X3CcaP3yAkc
 Dr Hal Puthoff Presentation & Q&A - C/R or "Crash Retrievals", the new R&D program, DIA DIRD's<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
 
-### Hill
-Paul R. Hill (mid–twentieth-century American aerodynamicist, leading research and development engineer and manager for NASA/NACA),
-UAP's absolutely follow the laws of physics:<br>
-https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-1571747133/dp/1571747133/
+### Ramirez
+GS-15 CIA Officer John Ramirez - Navigating the US Intelligence Community<br>
+https://www.youtube.com/watch?v=cQfySY_2BLc<br>
+https://drive.google.com/file/d/1ma2qEq8Y4lNyTrNoh0_SelgxqqddZkxj/view
+
+## Key Books/Documentaries
 
 ### Hastings
 UAP's and Nukes - Robert L. Hastings is the world’s foremost researcher on the subject of UFO activity at nuclear weapons sites.<br>
@@ -79,10 +81,10 @@ https://www.ufohastings.com/<br>
 https://www.amazon.com/UFOs-Nukes-Extraordinary-Encounters-Nuclear/dp/1544822197<br>
 https://www.amazon.com/UFOs-Nukes-Secret-Link-Revealed/dp/B06XWQ2NWX/
 
-### Ramirez
-GS-15 CIA Officer John Ramirez - Navigating the US Intelligence Community<br>
-https://www.youtube.com/watch?v=cQfySY_2BLc<br>
-https://drive.google.com/file/d/1ma2qEq8Y4lNyTrNoh0_SelgxqqddZkxj/view
+### Hill
+Paul R. Hill (mid–twentieth-century American aerodynamicist, leading research and development engineer and manager for NASA/NACA),
+UAP's absolutely follow the laws of physics:<br>
+https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-1571747133/dp/1571747133/
 
 ## Key Leaked Reports/Memos:
 
