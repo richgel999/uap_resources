@@ -111,7 +111,7 @@ https://majesticdocuments.com/pdf/fdr_22feb44.pdf
 MJ12 Report, Summer 1952 (Fifth Annual Report)<br>
 https://majesticdocuments.com/pdf/mj12_fifthannualreport.pdf
 
-## References
+## References, Briefing Documents
 
 DIA DIRD's (Defense Intelligence Agency's _Defense Intelligence Reference Documents_):<br>
 https://www.dropbox.com/sh/95tgfd2lljqrve3/AABKl58mfojoZjNiKEZAz8gMa
@@ -166,10 +166,12 @@ https://www.amazon.com/FBI-CIA-UFO-Connection-Activities-Intelligence-Agencies/d
 The Children of Roswell: A Seven-Decade Legacy of Fear, Intimidation, and Cover-Ups - by Thomas J. Carey, Donald R. Schmitt<br>
 https://www.amazon.com/Children-Roswell-Seven-Decade-Intimidation-Cover-Ups-ebook/dp/B07J1TCPSG
 
+Interview with John Ramirez, 12/3/2021:<br>
+https://www.youtube.com/watch?v=zFQtYfOmxxs
+
+## Wildcards
+
 ABOVE BLACK - Project Preserve Destiny - An Insider's Account of Alien Contact and Government Coverup, Dan Sherman<br>
 https://www.aboveblack.com/index.html<br>
 https://www.amazon.com/ABOVE-BLACK-Preserve-Insiders-Government-ebook/dp/B003L77MUU/ref=sr_1_1<br>
 https://thinkaboutit.site/ufos/project-preserve-destiny/<br>
-
-Interview with John Ramirez, 12/3/2021:<br>
-https://www.youtube.com/watch?v=zFQtYfOmxxs
