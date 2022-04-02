@@ -24,6 +24,8 @@ https://www.youtube.com/watch?v=u1hNYs55sqs
 https://www.youtube.com/watch?v=LsgA0-wxmns
 
 ### Corso
+_Pre-disclosure_
+
 Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
 https://www.openminds.tv/pdf/ufo-files/DawnOfANewAge.pdf
 
@@ -31,6 +33,8 @@ Book on Army R&D feeding exotic UAP-sourced materials to US industry, the R area
 https://www.amazon.com/Day-After-Roswell-William-Birnes-ebook/dp/B000FBJHT4/
 
 ### Crain
+_Pre-disclosure_
+
 TELL MY STORY - June Crain: exotic materials, R C/R, [Paperclip Scientists](https://en.wikipedia.org/wiki/Operation_Paperclip), early [SAP](https://en.wikipedia.org/wiki/Special_access_program) projects, interviewed by [police sergeant James Clarkson](https://jamesclarksonufo.com/about/james-clarkson-biography)<br>
 https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG/
 
