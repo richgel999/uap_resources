@@ -11,21 +11,29 @@ Some of the key UAP related reading/listening materials are from Corso, Crain, E
 
 ## Key Material
 
+### President Obama
 President Obama: "There's footage and records of objects in the skies that we don't know exactly what they are" - 5/20/2021<br>
 https://www.youtube.com/watch?v=u1hNYs55sqs
 
+### Director of National Intelligence
 [Director of National Intelligence](https://en.wikipedia.org/wiki/Director_of_National_Intelligence) (DNI) [Avril Haines](https://en.wikipedia.org/wiki/Avril_Haines) on UAP: "there something else that we simply do not understand that might come extraterrestrial/extraterrestrially" - 11/2021<br>
 https://www.youtube.com/watch?v=LsgA0-wxmns
 
+### Corso
 Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
 https://www.openminds.tv/pdf/ufo-files/DawnOfANewAge.pdf
 
 Book on Army R&D feeding exotic UAP-sourced materials to US industry, the R area crash recovery (C/R), by Corso and Birnes<br>
 https://www.amazon.com/Day-After-Roswell-William-Birnes-ebook/dp/B000FBJHT4/
 
+### Crain
 TELL MY STORY - June Crain: exotic materials, R C/R, [Paperclip Scientists](https://en.wikipedia.org/wiki/Operation_Paperclip), early [SAP](https://en.wikipedia.org/wiki/Special_access_program) projects, interviewed by police sergeant James Clarkson<br>
 https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG/
 
+Transcript of Clarkson interview with June Crain<br>
+https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf
+
+### Elizondo
 Lue Elizondo, statement during interviews of "exotic materials"<br>
 https://duckduckgo.com/?q=Elizondo+exotic+materials&ia=web
 
@@ -37,6 +45,7 @@ https://github.com/noncoding3torus/ReferenceMaterial/
 
 _TODO: More Elizondo interviews (there are so many it's hard for me to boil it down to a small key list)._
 
+### Davis
 Clip of interview with Eric W. Davis, Ph.D - where he totally spills the beans<br>
 https://pastebin.com/MQHhUgYA<br>
 https://www.youtube.com/watch?v=k2gjPRv4E7s
@@ -50,18 +59,22 @@ https://www.youtube.com/watch?v=IeyBTChcTe4
 Dr. Eric Davis: Classified Briefing to the Senate Armed Services Committee on 10/21/19<br>
 https://www.nytimes.com/2020/07/23/us/politics/pentagon-ufo-harry-reid-navy.html
 
+### Puthoff
 Dr Hal Puthoff Presentation & Q&A - C/R or "Crash Retrievals", and the new R&D program, DIA DIRD's<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
 
+### Hill
 Paul R. Hill (mid–twentieth-century American aerodynamicist, leading research and development engineer and manager for NASA/NACA),
 UAP's absolutely follow the laws of physics:<br>
 https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-1571747133/dp/1571747133/
 
+### Hastings
 UAP's and Nukes - Robert L. Hastings is the world’s foremost researcher on the subject of UFO activity at nuclear weapons sites.<br>
 https://www.ufohastings.com/<br>
 https://www.amazon.com/UFOs-Nukes-Extraordinary-Encounters-Nuclear/dp/1544822197<br>
 https://www.amazon.com/UFOs-Nukes-Secret-Link-Revealed/dp/B06XWQ2NWX/
 
+### Ramirez
 GS-15 CIA Officer John Ramirez - Navigating the US Intelligence Community<br>
 https://www.youtube.com/watch?v=cQfySY_2BLc<br>
 https://drive.google.com/file/d/1ma2qEq8Y4lNyTrNoh0_SelgxqqddZkxj/view
@@ -115,9 +128,6 @@ https://www.youtube.com/playlist?list=PLZ7ikzmc6zlPd4Y5pg8XtzS_0-ChSTeJ6##
 
 Christopher Mellon (20 years in the U.S. Intelligence Community, Minority Staff Director of the Senate Intelligence Committee, Deputy Assistant Secretary of Defense for Intelligence)<br>
 https://www.christophermellon.net/
-
-Transcript of Clarkson interview with June Crain in Ocean Shores, WA<br>
-https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf
 
 Ramey memo photo analysis:<br>
 http://kevinrandle.blogspot.com/2018/12/the-ramey-memo-latest-information.html
