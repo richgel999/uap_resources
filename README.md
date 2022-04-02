@@ -86,7 +86,7 @@ Paul R. Hill (mid–twentieth-century American aerodynamicist, leading research 
 UAP's absolutely follow the laws of physics:<br>
 https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-1571747133/dp/1571747133/
 
-## Key Leaked Reports/Memos:
+## Key Leaked Reports/Memos
 
 _TODO: This is not a complete list._<br>
 
@@ -122,7 +122,7 @@ https://recordsearch.naa.gov.au/SearchNRetrieve/Interface/ViewImage.aspx?B=30030
 Rockefeller sponsored world leader briefing document:<br>
 https://www.openminds.tv/wp-content/uploads/Rockefeller-Briefing-Document.pdf
 
-## Other Misc. Resources:
+## Other Misc. Resources
 
 In Plain Sight: An Investigation Into UFOs and Impossible Science, 2021/08/01:<br>
 https://www.amazon.com/Plain-Sight-investigation-impossible-science-ebook/dp/B08VYR4DZ6/
