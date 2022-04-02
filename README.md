@@ -134,7 +134,8 @@ https://majesticdocuments.com/pdf/mj12_fifthannualreport.pdf
 Pentacle Memorandum: A key 1950's era document found by early researcher Jacques Vallée, officially declassified. Vallée stated in [The Phenomenon](https://www.amazon.com/Phenomenon-John-Podesta/dp/B08HR9BVNM/ref=sr_1_1) documentary that this document "changed his life". Document was signed by H.C. Cross (Dr. Howard C. Cross) - Director of Exotic Metallergy - Battelle Memorial Institute - US National Labs. 
 http://www.greenwoodufoarchive.com/Just_Cause_Greenwood/Just_Cause_1993_03_n35.pdf<br>
 http://nicap.org/papers/Pentacle/pentacle_coppens.pdf<br>
-https://www.theufochronicles.com/2009/06/roswell-metal-scientist-curious-dr.html
+https://www.theufochronicles.com/2009/06/roswell-metal-scientist-curious-dr.html<br>
+https://www.ufoexplorations.com/roswell-metal-scientist-dr-cross
 
 ## References, Briefing Documents
 
