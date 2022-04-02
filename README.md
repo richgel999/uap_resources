@@ -27,7 +27,7 @@ Book on Army R&D feeding exotic UAP-sourced materials to US industry, the R area
 https://www.amazon.com/Day-After-Roswell-William-Birnes-ebook/dp/B000FBJHT4/
 
 ### Crain
-TELL MY STORY - June Crain: exotic materials, R C/R, [Paperclip Scientists](https://en.wikipedia.org/wiki/Operation_Paperclip), early [SAP](https://en.wikipedia.org/wiki/Special_access_program) projects, interviewed by police sergeant James Clarkson<br>
+TELL MY STORY - June Crain: exotic materials, R C/R, [Paperclip Scientists](https://en.wikipedia.org/wiki/Operation_Paperclip), early [SAP](https://en.wikipedia.org/wiki/Special_access_program) projects, interviewed by [police sergeant James Clarkson](https://jamesclarksonufo.com/about/james-clarkson-biography)<br>
 https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG/
 
 Transcript of Clarkson interview with June Crain<br>
