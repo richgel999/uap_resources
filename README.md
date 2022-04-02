@@ -163,6 +163,11 @@ https://recordsearch.naa.gov.au/SearchNRetrieve/Interface/ViewImage.aspx?B=30030
 [Laurance Rockefeller](https://en.wikipedia.org/wiki/Laurance_Rockefeller): Established the "UFO Disclosure Initiative" at the Clinton White House. Sponsored this briefing document intended for world leaders (pre-disclosure):<br>
 https://www.openminds.tv/wp-content/uploads/Rockefeller-Briefing-Document.pdf
 
+## Key Technologies
+
+Metamaterials, Metamaterial Antennas:<br>
+https://en.wikipedia.org/wiki/Metamaterial_antenna#Metamaterials_surface_antenna_technology
+
 ## Other Misc. Resources
 
 _Useful/educational material._
