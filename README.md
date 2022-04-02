@@ -56,7 +56,7 @@ https://www.youtube.com/watch?v=x4-JfM4rkRY
 Interview with Dr. Eric Davis - 4/30/19<br>
 https://www.youtube.com/watch?v=IeyBTChcTe4
 
-Dr. Eric Davis: Classified Briefing to the [Senate Armed Services Committee](https://en.wikipedia.org/wiki/United_States_Senate_Committee_on_Armed_Services) on 10/21/19<br>
+Dr. Eric Davis: Classified Briefing to the [Senate Armed Services Committee](https://en.wikipedia.org/wiki/United_States_Senate_Committee_on_Armed_Services) - 10/21/19<br>
 https://www.nytimes.com/2020/07/23/us/politics/pentagon-ufo-harry-reid-navy.html
 
 Interview with Eric Davis on working for Pentagon UFO program - New York Post<br>
