@@ -108,7 +108,7 @@ https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-15717
 
 ## Key Leaked Reports/Memos
 
-_Majestic/MJ-12 Documents. TODO: This is not a complete list._<br>
+_Mostly Majestic/MJ-12 Documents. TODO: This is not a complete list._<br>
 
 Mounting Evidence For Authenticity of MJ-12 Documents, by Robert M. Wood<br>
 https://majesticdocuments.com/pdf/rmwood_mufon2001.pdf
@@ -130,6 +130,9 @@ https://majesticdocuments.com/pdf/fdr_22feb44.pdf
 
 MJ12 Report, Summer 1952 (Fifth Annual Report)<br>
 https://majesticdocuments.com/pdf/mj12_fifthannualreport.pdf
+
+“Pentacle Memorandum” - found by early researcher Jacques Vallée<br>
+http://nicap.org/papers/Pentacle/pentacle_coppens.pdf
 
 ## References, Briefing Documents
 
