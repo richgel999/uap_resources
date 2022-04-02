@@ -13,7 +13,7 @@ Some of the key UAP related reading/listening materials are from Corso, Crain, E
 
 ## Key Material (All Have/Had Clearances)
 
-_Statements/information from the people with clearances_
+_Statements/information from the people with clearances._
 
 ### President Obama
 President Obama: "There's footage and records of objects in the skies that we don't know exactly what they are" - 5/20/2021<br>
