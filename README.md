@@ -16,7 +16,7 @@ President Obama: "There's footage and records of objects in the skies that we do
 https://www.youtube.com/watch?v=u1hNYs55sqs
 
 ### Director of National Intelligence
-[Director of National Intelligence](https://en.wikipedia.org/wiki/Director_of_National_Intelligence) (DNI) [Avril Haines](https://en.wikipedia.org/wiki/Avril_Haines) on UAP: "there something else that we simply do not understand that might come extraterrestrial/extraterrestrially" - 11/2021<br>
+[Director of National Intelligence](https://en.wikipedia.org/wiki/Director_of_National_Intelligence) (DNI) [Avril Haines](https://en.wikipedia.org/wiki/Avril_Haines) on UAP: "there [is] something else that we simply do not understand that might come extraterrestrial/extraterrestrially" - 11/2021<br>
 https://www.youtube.com/watch?v=LsgA0-wxmns
 
 ### Corso
