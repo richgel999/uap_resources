@@ -56,8 +56,11 @@ https://www.youtube.com/watch?v=x4-JfM4rkRY
 Interview with Dr. Eric Davis - 4/30/19<br>
 https://www.youtube.com/watch?v=IeyBTChcTe4
 
-Dr. Eric Davis: Classified Briefing to the Senate Armed Services Committee on 10/21/19<br>
+Dr. Eric Davis: Classified Briefing to the [Senate Armed Services Committee](https://en.wikipedia.org/wiki/United_States_Senate_Committee_on_Armed_Services) on 10/21/19<br>
 https://www.nytimes.com/2020/07/23/us/politics/pentagon-ufo-harry-reid-navy.html
+
+Interview with Eric Davis on working for Pentagon UFO program - New York Post<br>
+https://www.youtube.com/watch?v=X3CcaP3yAkc
 
 ### Puthoff
 Dr Hal Puthoff Presentation & Q&A - C/R or "Crash Retrievals", and the new R&D program, DIA DIRD's<br>
@@ -134,9 +137,6 @@ http://kevinrandle.blogspot.com/2018/12/the-ramey-memo-latest-information.html
 
 Stanton Friedman on the 70+ Year UAP Coverup<br>
 https://www.stantonfriedman.com/index.php?ptp=articles&fdt=2005.05.15
-
-Interview with Eric Davis on working for Pentagon UFO program - New York Post<br>
-https://www.youtube.com/watch?v=X3CcaP3yAkc
 
 Luis Elizondo on Unidentified Aerial Phenomena - British GQ<br>
 https://www.youtube.com/watch?v=4yX6ETCKyPo
