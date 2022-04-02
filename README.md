@@ -133,7 +133,7 @@ https://majesticdocuments.com/pdf/mj12_fifthannualreport.pdf
 
 ## Vallée: "Pentacle" Memorandum
 
-A key 1953 document found by early researcher and computer scientist [Jacques Vallée](https://www.jacquesvallee.net/), which he pushed to get officially declassified. Vallée stated in [The Phenomenon](https://www.amazon.com/Phenomenon-John-Podesta/dp/B08HR9BVNM/ref=sr_1_1) documentary that this document "changed his life". Document was signed by H.C. Cross (Dr. Howard C. Cross) - Director of Exotic Metallergy - Battelle Memorial Institute - US National Labs.
+A key 1953 document found by early researcher and computer scientist [Jacques Vallée](https://www.jacquesvallee.net/), which he pushed to get officially declassified. Vallée stated in [The Phenomenon](https://www.amazon.com/Phenomenon-John-Podesta/dp/B08HR9BVNM/ref=sr_1_1) documentary that this document "changed his life". Document was signed by H.C. Cross (Dr. Howard C. Cross) - Director of Exotic Metallergy - [Battelle Memorial Institute](https://en.wikipedia.org/wiki/Battelle_Memorial_Institute) - US National Labs.
 
 http://www.greenwoodufoarchive.com/Just_Cause_Greenwood/Just_Cause_1993_03_n35.pdf<br>
 http://nicap.org/papers/Pentacle/pentacle_coppens.pdf<br>
