@@ -131,6 +131,19 @@ https://majesticdocuments.com/pdf/fdr_22feb44.pdf
 MJ12 Report, Summer 1952 (Fifth Annual Report)<br>
 https://majesticdocuments.com/pdf/mj12_fifthannualreport.pdf
 
+## Statement by Astronaut Dr. Edgar Mitchell
+
+Astronaut Dr. Edgar Mitchell
+Lunar Module Pilot of Apollo 14, he spent nine hours working on the lunar surface in the Fra Mauro Highlands region, making him the sixth person to walk on the Moon.<br>
+https://www.youtube.com/watch?v=yeBtSnRGSus
+
+Transcript:
+"There have been ET visitation. There have been crashed craft. 
+There have been material and bodies recovered, and there is some group of people
+somewhere that may or may not be associated with government at this point, but
+certainly were at one time, that have this knowledge and have been attempting to
+conceal this knowledge are not permitted to be widely disseminated."
+
 ## Vallée: "Pentacle" Memorandum
 
 A key 1953 document found by early researcher and computer scientist [Jacques Vallée](https://www.jacquesvallee.net/), which he pushed to get officially declassified. Vallée stated in [The Phenomenon](https://www.amazon.com/Phenomenon-John-Podesta/dp/B08HR9BVNM/ref=sr_1_1) documentary that this document "changed his life". Document was signed by H.C. Cross (Dr. Howard C. Cross) - Director of Exotic Metallergy - [Battelle Memorial Institute](https://en.wikipedia.org/wiki/Battelle_Memorial_Institute) - US National Labs.
