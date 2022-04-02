@@ -11,10 +11,10 @@ Some of the key UAP related reading/listening materials are from Corso, Crain, E
 
 ## Key Material
 
-President Obama on "There's footage and records of objects in the skies that we don't know exactly what they are" 5/20/2021<br>
+President Obama: "There's footage and records of objects in the skies that we don't know exactly what they are" 5/20/2021<br>
 https://www.youtube.com/watch?v=u1hNYs55sqs
 
-[Director of National Intelligence](https://en.wikipedia.org/wiki/Director_of_National_Intelligence) (DNI) [Avril Haines](https://en.wikipedia.org/wiki/Avril_Haines) on UAP "there something else that we simply do not understand that might come extraterrestrial/extraterrestrially" - 11/2021<br>
+[Director of National Intelligence](https://en.wikipedia.org/wiki/Director_of_National_Intelligence) (DNI) [Avril Haines](https://en.wikipedia.org/wiki/Avril_Haines) on UAP: "there something else that we simply do not understand that might come extraterrestrial/extraterrestrially" - 11/2021<br>
 https://www.youtube.com/watch?v=LsgA0-wxmns
 
 Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
