@@ -11,7 +11,7 @@ Some of the key UAP related reading/listening materials are from Corso, Crain, E
 - June Crain - Clerk/Stenographer [Wright-Patterson AFB](https://en.wikipedia.org/wiki/Wright-Patterson_Air_Force_Base), handled sensitive material, [Top Secret Clearance](https://en.wikipedia.org/wiki/Security_clearance#Top_Secret) ([Transcript](https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf), [book](https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG))
 - John F. Ramirez - Intelligence Analyst, GS-15 CIA Directorate of Science and Technology, Directorate of Intelligence, and the ODNI National Counterproliferation Center (NCPC) 1984-2009. Chief, ELINT Analysis Branch specializing in Ballistic Missile Defense. Majored in Political Science, graduated George Washington University 1983, recipient of the CIA [Career Intelligence Medal](https://en.wikipedia.org/wiki/Career_Intelligence_Medal) 3/17/2010. ([Twitter](https://twitter.com/JRam_11_11))
 
-## Key Material
+## Key Material (All Have/Had Clearances)
 
 ### President Obama
 President Obama: "There's footage and records of objects in the skies that we don't know exactly what they are" - 5/20/2021<br>
