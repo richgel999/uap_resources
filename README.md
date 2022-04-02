@@ -63,7 +63,7 @@ Interview with Eric Davis on working for Pentagon UFO program - New York Post<br
 https://www.youtube.com/watch?v=X3CcaP3yAkc
 
 ### Puthoff
-Dr Hal Puthoff Presentation & Q&A - C/R or "Crash Retrievals", and the new R&D program, DIA DIRD's<br>
+Dr Hal Puthoff Presentation & Q&A - C/R or "Crash Retrievals", the new R&D program, DIA DIRD's<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
 
 ### Hill
