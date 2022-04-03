@@ -226,6 +226,9 @@ https://twitter.com/kentbye/status/943238420037431297
 25 year CIA Officer (Senior Intelligence Service), TTSA VP of Ops, Co-Founder "To The Stars" [Jim Semivan](https://www.linkedin.com/in/jim-semivan-3b703227/) on his Close Encounter Experience (best part is near the end)<br>
 https://www.youtube.com/watch?v=7xBVCi_hIa0
 
+"The White House Role in Crash UFO Retrievals" - From a paper presented at the Crashed Retrieval Conference, Las Vegas November 16, 2003:<br>
+https://www.bibliotecapleyades.net/exopolitica/esp_exopolitics_ZZL.htm
+
 ## Documentaries
 
 "The Phenomenon"<br>
