@@ -229,6 +229,8 @@ https://www.amazon.com/Phenomenon-John-Podesta/dp/B08HR9BVNM/ref=sr_1_1
 
 ## Recent US Navy Patents 
 
+Note: Pais doesn't like being associated with the UAP topic.<br>
+
 Interview with Salvatore Pais (Physicist and Aerospace Engineer - Naval Air Station):<br>
 https://www.youtube.com/watch?v=5E6QyAhTB3o
 
