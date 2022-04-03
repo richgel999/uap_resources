@@ -190,49 +190,49 @@ https://en.wikipedia.org/wiki/Metamaterial_antenna#Metamaterials_surface_antenna
 
 _Useful/educational material. Not sorted/categorized yet._
 
-"David Fravor: UFOs, Aliens, Fighter Jets, and Aerospace Engineering", 9/8/2020:<br>
+- "David Fravor: UFOs, Aliens, Fighter Jets, and Aerospace Engineering", 9/8/2020:<br>
 https://www.youtube.com/watch?v=aB8zcAttP1E
 
-"In Plain Sight: An Investigation Into UFOs and Impossible Science", 2021/08/01:<br>
+- "In Plain Sight: An Investigation Into UFOs and Impossible Science", 2021/08/01:<br>
 https://www.amazon.com/Plain-Sight-investigation-impossible-science-ebook/dp/B08VYR4DZ6/
 
-"Skinwalkers at the Pentagon: An Insiders' Account of the Secret Government UFO Program", 2021/10/01:<br>
+- "Skinwalkers at the Pentagon: An Insiders' Account of the Secret Government UFO Program", 2021/10/01:<br>
 https://www.amazon.com/Skinwalkers-Pentagon-Insiders-Account-Government-ebook/dp/B09J484KYD/
 
-"Theories of Everything with Curt Jaimungal "UFO" playlist", containing in-depth interviews with Luis Elizondo, Jacques Vallée, Avi Loeb, and more:<br>
+- "Theories of Everything with Curt Jaimungal "UFO" playlist", containing in-depth interviews with Luis Elizondo, Jacques Vallée, Avi Loeb, and more:<br>
 https://www.youtube.com/playlist?list=PLZ7ikzmc6zlPd4Y5pg8XtzS_0-ChSTeJ6##
 
-Christopher Mellon (20 years in the U.S. Intelligence Community, Minority Staff Director of the Senate Intelligence Committee, Deputy Assistant Secretary of Defense for Intelligence)<br>
+- Christopher Mellon (20 years in the U.S. Intelligence Community, Minority Staff Director of the Senate Intelligence Committee, Deputy Assistant Secretary of Defense for Intelligence)<br>
 https://www.christophermellon.net/
 
-Ramey Roswell memo photo analysis, which is very useful because we have public photos with Ramey holding the memo in his hand:<br>
+- Ramey Roswell memo photo analysis, which is very useful because we have public photos with Ramey holding the memo in his hand:<br>
 http://kevinrandle.blogspot.com/2018/12/the-ramey-memo-latest-information.html
 
-Stanton Friedman on the 70+ Year UAP Coverup<br>
+- Stanton Friedman on the 70+ Year UAP Coverup<br>
 https://www.stantonfriedman.com/index.php?ptp=articles&fdt=2005.05.15
 
-Admiral Wilson Leak Analysis<br>
+- Admiral Wilson Leak Analysis<br>
 https://www.theblackvault.com/casefiles/the-admiral-wilson-leak-an-analysis/
 
-US Air Force Foreign Technology Division - 7/24/1981, likely not UAP, sightings over several provinces in China, notice the cover page<br>
+- US Air Force Foreign Technology Division - 7/24/1981, likely not UAP, sightings over several provinces in China, notice the cover page<br>
 https://www.esd.whs.mil/Portals/54/Documents/FOID/Reading%20Room/UFOsandUAPs/ADA128307_UFOsandUAPs.pdf?ver=2017-05-22-113419-807
 
-The FBI-CIA-UFO Connection: The Hidden UFO Activities of USA Intelligence Agencies -  [Dr. Bruce Maccabee](http://brumac.mysite.com/) (Physicist, Naval Surface Warfare Center)<br>
+- The FBI-CIA-UFO Connection: The Hidden UFO Activities of USA Intelligence Agencies -  [Dr. Bruce Maccabee](http://brumac.mysite.com/) (Physicist, Naval Surface Warfare Center)<br>
 https://www.amazon.com/FBI-CIA-UFO-Connection-Activities-Intelligence-Agencies/dp/1502317214
 
-The Children of Roswell: A Seven-Decade Legacy of Fear, Intimidation, and Cover-Ups - by Thomas J. Carey, Donald R. Schmitt<br>
+- The Children of Roswell: A Seven-Decade Legacy of Fear, Intimidation, and Cover-Ups - by Thomas J. Carey, Donald R. Schmitt<br>
 https://www.amazon.com/Children-Roswell-Seven-Decade-Intimidation-Cover-Ups-ebook/dp/B07J1TCPSG
 
-Massive Twitter thread by @kentbye with the latest developments<br>
+- Massive Twitter thread by @kentbye with the latest developments<br>
 https://twitter.com/kentbye/status/943238420037431297
 
-25 year CIA Officer (Senior Intelligence Service), TTSA VP of Ops, Co-Founder "To The Stars" [Jim Semivan](https://www.linkedin.com/in/jim-semivan-3b703227/) on his Close Encounter Experience (best part is near the end)<br>
+- 25 year CIA Officer (Senior Intelligence Service), TTSA VP of Ops, Co-Founder "To The Stars" [Jim Semivan](https://www.linkedin.com/in/jim-semivan-3b703227/) on his Close Encounter Experience (best part is near the end)<br>
 https://www.youtube.com/watch?v=7xBVCi_hIa0
 
-"The White House Role in Crashed UFO Retrievals" - From a paper presented at the Crashed Retrieval Conference, Las Vegas November 16, 2003:<br>
+- "The White House Role in Crashed UFO Retrievals" - From a paper presented at the Crashed Retrieval Conference, Las Vegas November 16, 2003:<br>
 https://www.bibliotecapleyades.net/exopolitica/esp_exopolitics_ZZL.htm
 
-"UFO Cover-Up?: Live!" - 1988 2 hour special. Included some then-classified information in the White House organization chart shown at 1:08:23.<br>
+- "UFO Cover-Up?: Live!" - 1988 2 hour special. Included some then-classified information in the White House organization chart shown at 1:08:23.<br>
 
 "The existence of the parapsychology unit, and in particular the DIA management of the "weird" division of the Intelligence Community, was still classified as SECRET/NOFORN/WNINTEL according to a FOIA CIA-released STAR GATE review of government parapsychology research dated May 10, 1995."
 
