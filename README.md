@@ -208,7 +208,7 @@ https://www.amazon.com/Children-Roswell-Seven-Decade-Intimidation-Cover-Ups-eboo
 Massive Twitter thread by @kentbye with the latest developments<br>
 https://twitter.com/kentbye/status/943238420037431297
 
-25 year CIA Officer, TTSA VP of Ops, Co-Founder TTS [Jim Semivan](https://www.linkedin.com/in/jim-semivan-3b703227/) on his Close Encounter Experience (best part is near the end)<br>
+25 year CIA Officer (Senior Intelligence Service), TTSA VP of Ops, Co-Founder "To The Stars" [Jim Semivan](https://www.linkedin.com/in/jim-semivan-3b703227/) on his Close Encounter Experience (best part is near the end)<br>
 https://www.youtube.com/watch?v=7xBVCi_hIa0
 
 ## Documentaries
