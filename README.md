@@ -229,7 +229,7 @@ https://www.youtube.com/watch?v=7xBVCi_hIa0
 "The White House Role in Crashed UFO Retrievals" - From a paper presented at the Crashed Retrieval Conference, Las Vegas November 16, 2003:<br>
 https://www.bibliotecapleyades.net/exopolitica/esp_exopolitics_ZZL.htm
 
-"UFO Cover-Up?: Live!" - 1988 2 hour special. Included some then-classified information in a organization chart.<br>
+"UFO Cover-Up?: Live!" - 1988 2 hour special. Included some then-classified information in a organization chart shown at 1:08:23 (William Moore).<br>
 https://www.imdb.com/title/tt0846738/<br>
 https://www.youtube.com/watch?v=Js-gZypx9xc
 
