@@ -84,14 +84,18 @@ Dr Hal Puthoff Presentation & Q&A - C/R or "Crash Retrievals", the new R&D progr
 https://www.youtube.com/watch?v=UnCjbN7LCCs
 
 ### Ramirez
-GS-15 CIA Officer John Ramirez - Navigating the US Intelligence Community<br>
-https://www.youtube.com/watch?v=cQfySY_2BLc<br>
+GS-15 CIA Officer John Ramirez<br>
+
+Slide deck, which was cleared by the CIA for public release:<br>
 https://drive.google.com/file/d/1ma2qEq8Y4lNyTrNoh0_SelgxqqddZkxj/view
 
-12/3/2021 interview:<br>
+11/2/2021 "Navigating the US Intelligence Community"
+https://www.youtube.com/watch?v=cQfySY_2BLc<br>
+
+12/3/2021 Interview:<br>
 https://www.youtube.com/watch?v=zFQtYfOmxxs
 
-12/20/2021 interview:<br>
+12/20/2021 Interview:<br>
 https://www.youtube.com/watch?v=F-b97V-Wkw0
 
 ## Key Books/Documentaries
