@@ -244,6 +244,8 @@ This seems too well done/organized for 1954, but still makes for an interesting 
 https://majesticdocuments.com/pdf/som101_part1.pdf<br>
 https://majesticdocuments.com/pdf/som101_part2.pdf
 
+Aligns with statements made by Corso, Davis, possibly Elizondo.
+
 ### Sherman 
 _Pre-disclosure. Claimed to have a clearance._
 
