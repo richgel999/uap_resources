@@ -234,6 +234,9 @@ Note: Pais doesn't like being associated with the UAP topic.<br>
 Interview with Salvatore Pais (Physicist and Aerospace Engineer - Naval Air Station):<br>
 https://www.youtube.com/watch?v=5E6QyAhTB3o
 
+"Docs Show Navy Got 'UFO' Patent Granted By Warning Of Similar Chinese Tech Advances" - 6/28/2019:<br>
+https://www.thedrive.com/the-war-zone/28729/docs-show-navy-got-ufo-patent-granted-by-warning-of-similar-chinese-tech-advances
+
 ## Wildcards 
 
 _This category is the rough equivalent to Corso's "Nut File". This information seems to fit into the puzzle. It may be real, or it may be nuts. Can't tell - currently._
