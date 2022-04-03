@@ -203,9 +203,6 @@ https://www.stantonfriedman.com/index.php?ptp=articles&fdt=2005.05.15
 Admiral Wilson Leak Analysis<br>
 https://www.theblackvault.com/casefiles/the-admiral-wilson-leak-an-analysis/
 
-Interview with Salvatore Pais (Physicist and Aerospace Engineer - Naval Air Station):<br>
-https://www.youtube.com/watch?v=5E6QyAhTB3o
-
 US Air Force Foreign Technology Division - 7/24/1981, likely not UAP, sightings over several provinces in China, notice the cover page<br>
 https://www.esd.whs.mil/Portals/54/Documents/FOID/Reading%20Room/UFOsandUAPs/ADA128307_UFOsandUAPs.pdf?ver=2017-05-22-113419-807
 
@@ -225,6 +222,11 @@ https://www.youtube.com/watch?v=7xBVCi_hIa0
 
 "The Phenomenon"<br>
 https://www.amazon.com/Phenomenon-John-Podesta/dp/B08HR9BVNM/ref=sr_1_1
+
+## Recent US Navy Patents 
+
+Interview with Salvatore Pais (Physicist and Aerospace Engineer - Naval Air Station):<br>
+https://www.youtube.com/watch?v=5E6QyAhTB3o
 
 ## Wildcards 
 
