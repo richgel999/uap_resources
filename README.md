@@ -88,8 +88,11 @@ GS-15 CIA Officer John Ramirez - Navigating the US Intelligence Community<br>
 https://www.youtube.com/watch?v=cQfySY_2BLc<br>
 https://drive.google.com/file/d/1ma2qEq8Y4lNyTrNoh0_SelgxqqddZkxj/view
 
-Interview with John Ramirez, 12/3/2021:<br>
+12/3/2021 interview:<br>
 https://www.youtube.com/watch?v=zFQtYfOmxxs
+
+12/20/2021 interview:<br>
+https://www.youtube.com/watch?v=F-b97V-Wkw0
 
 ## Key Books/Documentaries
 
