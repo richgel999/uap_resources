@@ -237,6 +237,8 @@ _Pre-disclosure. Claimed to have a clearance._
 
 "During his twelve years in service he was recognised for heroism and has been decorated with the AF Commendation Medal, as well as the AF Achievement Medal with two oak leaf clusters and was honoured for service in the Persian Gulf War."
 
+~95% of his book is a vanilla story about working for the USAF/NSA. Very little of the book covers his claimed interactions with NHI's on behalf of the NSA.
+
 https://www.aboveblack.com/index.html<br>
 https://www.amazon.com/ABOVE-BLACK-Preserve-Insiders-Government-ebook/dp/B003L77MUU/ref=sr_1_1<br>
 https://thinkaboutit.site/ufos/project-preserve-destiny/<br>
