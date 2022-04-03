@@ -237,16 +237,6 @@ https://www.bibliotecapleyades.net/exopolitica/esp_exopolitics_ZZL.htm
 ### "The Phenomenon"
 https://www.amazon.com/Phenomenon-John-Podesta/dp/B08HR9BVNM/ref=sr_1_1
 
-### "UFO Cover-Up?: Live!" 
-
-A 2 hour live special from 1988. Included some then-classified information in the White House organization chart shown at 1:08:23.
-
-"The existence of the Parapsychology Research Unit, and in particular the DIA management of the "weird" division of the Intelligence Community, was still classified as SECRET/NOFORN/WNINTEL according to a FOIA CIA-released STAR GATE review of government parapsychology research dated May 10, 1995."
-
-https://www.imdb.com/title/tt0846738/<br>
-https://www.youtube.com/watch?v=Js-gZypx9xc<br>
-http://stargate007.blogspot.com/2009/03/secret-revealed-ufo-cover-up-live-1988.html
-
 ## Recent US Navy Patents 
 
 Note: Pais doesn't like being associated with the UAP topic.<br>
@@ -284,4 +274,12 @@ https://www.aboveblack.com/index.html<br>
 https://www.amazon.com/ABOVE-BLACK-Preserve-Insiders-Government-ebook/dp/B003L77MUU/ref=sr_1_1<br>
 https://thinkaboutit.site/ufos/project-preserve-destiny/<br>
 
+### "UFO Cover-Up?: Live!" 
 
+A 2 hour live special from 1988. Included some then-classified information in the White House organization chart shown at 1:08:23.
+
+"The existence of the Parapsychology Research Unit, and in particular the DIA management of the "weird" division of the Intelligence Community, was still classified as SECRET/NOFORN/WNINTEL according to a FOIA CIA-released STAR GATE review of government parapsychology research dated May 10, 1995."
+
+https://www.imdb.com/title/tt0846738/<br>
+https://www.youtube.com/watch?v=Js-gZypx9xc<br>
+http://stargate007.blogspot.com/2009/03/secret-revealed-ufo-cover-up-live-1988.html
