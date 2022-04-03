@@ -198,7 +198,7 @@ https://www.youtube.com/playlist?list=PLZ7ikzmc6zlPd4Y5pg8XtzS_0-ChSTeJ6##
 Christopher Mellon (20 years in the U.S. Intelligence Community, Minority Staff Director of the Senate Intelligence Committee, Deputy Assistant Secretary of Defense for Intelligence)<br>
 https://www.christophermellon.net/
 
-Ramey memo photo analysis:<br>
+Ramey Roswell memo photo analysis, which is very useful because we have public photos with Ramey holding the memo in his hand:<br>
 http://kevinrandle.blogspot.com/2018/12/the-ramey-memo-latest-information.html
 
 Stanton Friedman on the 70+ Year UAP Coverup<br>
