@@ -267,7 +267,7 @@ _This category is the rough equivalent to Corso's "Nut File". This information s
 ### Leaked Manual: "SOM 1-01: Extraterrestrial Entities and Technology, Recovery and Disposal"
 _Pre-disclosure._
 
-This seems too well done/organized for 1954, but still makes for an interesting read. Great [X-COM](https://en.wikipedia.org/wiki/XCOM) material at the minimum.<br>
+This seems too well done/organized for 1954, but still makes for an interesting read. Great [X-COM](https://en.wikipedia.org/wiki/XCOM) material at the minimum. Some researchers think it's fake.<br>
 
 https://majesticdocuments.com/pdf/som101_part1.pdf<br>
 https://majesticdocuments.com/pdf/som101_part2.pdf
