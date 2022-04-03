@@ -79,6 +79,9 @@ https://www.youtube.com/watch?v=mygOFMH6-Ts
 Dr. Eric Davis - Interview on Warp-Drives and FTL (2006)<br>
 https://www.youtube.com/watch?v=lVkTuFf2QsU
 
+Dr. Eric Davis - FTL Drives Low Energy Warp Bubbles<br>
+https://www.youtube.com/watch?v=5V7eoBUplv4
+
 ### Puthoff
 Dr Hal Puthoff Presentation & Q&A - C/R or "Crash Retrievals", the new R&D program, DIA DIRD's<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
