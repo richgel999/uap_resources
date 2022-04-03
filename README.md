@@ -177,15 +177,18 @@ https://en.wikipedia.org/wiki/Metamaterial_antenna#Metamaterials_surface_antenna
 
 ## Other Misc. Resources
 
-_Useful/educational material._
+_Useful/educational material. Not sorted/categorized yet._
 
-In Plain Sight: An Investigation Into UFOs and Impossible Science, 2021/08/01:<br>
+"David Fravor: UFOs, Aliens, Fighter Jets, and Aerospace Engineering", 9/8/2020:<br>
+https://www.youtube.com/watch?v=aB8zcAttP1E
+
+"In Plain Sight: An Investigation Into UFOs and Impossible Science", 2021/08/01:<br>
 https://www.amazon.com/Plain-Sight-investigation-impossible-science-ebook/dp/B08VYR4DZ6/
 
-Skinwalkers at the Pentagon: An Insiders' Account of the Secret Government UFO Program, 2021/10/01:<br>
+"Skinwalkers at the Pentagon: An Insiders' Account of the Secret Government UFO Program", 2021/10/01:<br>
 https://www.amazon.com/Skinwalkers-Pentagon-Insiders-Account-Government-ebook/dp/B09J484KYD/
 
-Theories of Everything with Curt Jaimungal "UFO" playlist, containing in-depth interviews with Luis Elizondo, Jacques Vallée, Avi Loeb, and more:<br>
+"Theories of Everything with Curt Jaimungal "UFO" playlist", containing in-depth interviews with Luis Elizondo, Jacques Vallée, Avi Loeb, and more:<br>
 https://www.youtube.com/playlist?list=PLZ7ikzmc6zlPd4Y5pg8XtzS_0-ChSTeJ6##
 
 Christopher Mellon (20 years in the U.S. Intelligence Community, Minority Staff Director of the Senate Intelligence Committee, Deputy Assistant Secretary of Defense for Intelligence)<br>
