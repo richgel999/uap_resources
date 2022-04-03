@@ -128,6 +128,9 @@ https://majesticdocuments.com/pdf/rmwood_mufon2001.pdf
 The Majestic (MJ-12) Documents - Summary Arguments<br>
 https://majesticdocuments.com/documents/document-authentication/summary-arguments/
 
+Update on Operation Majestic 12 Documents - Friedman:<br>
+http://stantonfriedman.com/index.php?ptp=articles&fdt=2004.04.15
+
 ### Reports/Memos:
 
 List of Majestic (MJ-12) Documents Prior to 1948:<br>
