@@ -117,14 +117,18 @@ https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-15717
 
 _Majestic/MJ-12 Documents. TODO: This is not a complete list._<br>
 
+### Authenticity
+
 Mounting Evidence For Authenticity of MJ-12 Documents, by Robert M. Wood<br>
 https://majesticdocuments.com/pdf/rmwood_mufon2001.pdf
 
-List of Majestic (MJ-12) Documents Prior to 1948:<br>
-https://majesticdocuments.com/documents/majestic-documents/documents-dated-prior-to-1948/
-
 The Majestic (MJ-12) Documents - Summary Arguments<br>
 https://majesticdocuments.com/documents/document-authentication/summary-arguments/
+
+### Reports/Memos:
+
+List of Majestic (MJ-12) Documents Prior to 1948:<br>
+https://majesticdocuments.com/documents/majestic-documents/documents-dated-prior-to-1948/
 
 Oppenheimer-Einstein Draft, June 1947<br>
 https://majesticdocuments.com/pdf/oppenheimer_einstein.pdf
