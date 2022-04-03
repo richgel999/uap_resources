@@ -233,8 +233,12 @@ https://www.youtube.com/watch?v=7xBVCi_hIa0
 https://www.bibliotecapleyades.net/exopolitica/esp_exopolitics_ZZL.htm
 
 "UFO Cover-Up?: Live!" - 1988 2 hour special. Included some then-classified information in the White House organization chart shown at 1:08:23.<br>
+
+"The existence of the parapsychology unit, and in particular the DIA management of the "weird" division of the Intelligence Community, was still classified as SECRET/NOFORN/WNINTEL according to a FOIA CIA-released STAR GATE review of government parapsychology research dated May 10, 1995."
+
 https://www.imdb.com/title/tt0846738/<br>
 https://www.youtube.com/watch?v=Js-gZypx9xc
+http://stargate007.blogspot.com/2009/03/secret-revealed-ufo-cover-up-live-1988.html
 
 ## Documentaries
 
