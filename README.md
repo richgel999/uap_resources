@@ -232,14 +232,6 @@ https://www.youtube.com/watch?v=7xBVCi_hIa0
 - "The White House Role in Crashed UFO Retrievals" - From a paper presented at the Crashed Retrieval Conference, Las Vegas November 16, 2003:<br>
 https://www.bibliotecapleyades.net/exopolitica/esp_exopolitics_ZZL.htm
 
-- "UFO Cover-Up?: Live!" - 1988 2 hour special. Included some then-classified information in the White House organization chart shown at 1:08:23.<br>
-
-"The existence of the Parapsychology Research Unit, and in particular the DIA management of the "weird" division of the Intelligence Community, was still classified as SECRET/NOFORN/WNINTEL according to a FOIA CIA-released STAR GATE review of government parapsychology research dated May 10, 1995."
-
-https://www.imdb.com/title/tt0846738/<br>
-https://www.youtube.com/watch?v=Js-gZypx9xc
-http://stargate007.blogspot.com/2009/03/secret-revealed-ufo-cover-up-live-1988.html
-
 ## Documentaries
 
 "The Phenomenon"<br>
@@ -281,3 +273,11 @@ _Pre-disclosure. Claimed to have a clearance._
 https://www.aboveblack.com/index.html<br>
 https://www.amazon.com/ABOVE-BLACK-Preserve-Insiders-Government-ebook/dp/B003L77MUU/ref=sr_1_1<br>
 https://thinkaboutit.site/ufos/project-preserve-destiny/<br>
+
+### "UFO Cover-Up?: Live!" - 1988 2 hour special. Included some then-classified information in the White House organization chart shown at 1:08:23.<br>
+
+"The existence of the Parapsychology Research Unit, and in particular the DIA management of the "weird" division of the Intelligence Community, was still classified as SECRET/NOFORN/WNINTEL according to a FOIA CIA-released STAR GATE review of government parapsychology research dated May 10, 1995."
+
+https://www.imdb.com/title/tt0846738/<br>
+https://www.youtube.com/watch?v=Js-gZypx9xc<br>
+http://stargate007.blogspot.com/2009/03/secret-revealed-ufo-cover-up-live-1988.html
