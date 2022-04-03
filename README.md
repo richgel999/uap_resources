@@ -149,9 +149,13 @@ somewhere that may or may not be associated with government at this point, but
 certainly were at one time, that have this knowledge and have been attempting to
 conceal this knowledge are not permitted to be widely disseminated."
 
+This matches with Corso, Davis, Elizondo, Puthoff, and the Admiral Wilson Leak.
+
 ## Vallée: "Pentacle" Memorandum
 
 A key 1953 document found by early researcher and computer scientist [Jacques Vallée](https://www.jacquesvallee.net/), which he pushed to get officially declassified. Vallée stated in [The Phenomenon](https://www.amazon.com/Phenomenon-John-Podesta/dp/B08HR9BVNM/ref=sr_1_1) documentary that this document "changed his life". Document was signed by H.C. Cross (Dr. Howard C. Cross) - Director of Exotic Metallergy - [Battelle Memorial Institute](https://en.wikipedia.org/wiki/Battelle_Memorial_Institute) - US National Labs.
+
+This document demonstrated that the US military took the UAP problem so seriously that they had another independent and secret data collection/analysis program, parallel to Blue Book.
 
 http://www.greenwoodufoarchive.com/Just_Cause_Greenwood/Just_Cause_1993_03_n35.pdf<br>
 http://nicap.org/papers/Pentacle/pentacle_coppens.pdf<br>
