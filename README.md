@@ -236,6 +236,13 @@ https://www.youtube.com/watch?v=5E6QyAhTB3o
 
 _This category is the rough equivalent to Corso's "Nut File". This information seems to fit into the puzzle. It may be real, or it may be nuts. Can't tell - currently._
 
+### "SOM1-01: Extraterrestrial Entities and Technology, Recovery and Disposal" Manual
+
+This seems too well done for 1954, but still makes for an interesting read. Great [X-COM](https://en.wikipedia.org/wiki/XCOM) material.<br>
+
+https://majesticdocuments.com/pdf/som101_part1.pdf<br>
+https://majesticdocuments.com/pdf/som101_part2.pdf
+
 ### Sherman 
 _Pre-disclosure. Claimed to have a clearance._
 
