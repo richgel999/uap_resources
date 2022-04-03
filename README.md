@@ -89,8 +89,8 @@ GS-15 CIA Officer John Ramirez<br>
 Slide deck, which was cleared by the CIA for public release:<br>
 https://drive.google.com/file/d/1ma2qEq8Y4lNyTrNoh0_SelgxqqddZkxj/view
 
-11/2/2021 "Navigating the US Intelligence Community"
-https://www.youtube.com/watch?v=cQfySY_2BLc<br>
+11/2/2021 "Navigating the US Intelligence Community"<br>
+https://www.youtube.com/watch?v=cQfySY_2BLc
 
 12/3/2021 Interview:<br>
 https://www.youtube.com/watch?v=zFQtYfOmxxs
