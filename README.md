@@ -240,15 +240,16 @@ https://www.bibliotecapleyades.net/exopolitica/esp_exopolitics_ZZL.htm
 ### "The Phenomenon"
 https://www.amazon.com/Phenomenon-John-Podesta/dp/B08HR9BVNM/ref=sr_1_1
 
-### "UFO Cover-Up?: Live!" 
+### 1988 "UFO Cover-Up?: Live!" 
 
-A 2 hour live special from 1988. Included some then-classified information in the White House organization chart shown at 1:08:23.
+A sigficant two hour live special from Washington DC in 1988. Had a live studio audience in [Gulf Breeze, FL](https://www.youtube.com/watch?v=pJzLKIqp-3w), a hotspot. Included some classified information (for '88) in the White House organization chart shown at 1:08:23. This special seemed to be trying to suppress a panic. [Cash-Landrum](https://en.wikipedia.org/wiki/Cash%E2%80%93Landrum_incident) witnesses were interviewed. It had a live telephone survey, asking the audience of Congressional Hearings should take place (the audience voted yes).
 
 "The existence of the Parapsychology Research Unit, and in particular the DIA management of the "weird" division of the Intelligence Community, was still classified as SECRET/NOFORN/WNINTEL according to a FOIA CIA-released STAR GATE review of government parapsychology research dated May 10, 1995."
 
 https://www.imdb.com/title/tt0846738/<br>
 https://www.youtube.com/watch?v=Js-gZypx9xc<br>
-http://stargate007.blogspot.com/2009/03/secret-revealed-ufo-cover-up-live-1988.html
+http://stargate007.blogspot.com/2009/03/secret-revealed-ufo-cover-up-live-1988.html<br>
+https://tomwhitmoreblog.wordpress.com/2020/05/22/ufo-coverup-live-transcripts/
 
 ## Recent US Navy Patents 
 
@@ -265,9 +266,9 @@ https://www.thedrive.com/the-war-zone/28729/docs-show-navy-got-ufo-patent-grante
 _This category is the rough equivalent to Corso's "Nut File". This information seems to fit into the puzzle. It may be real, or it may be nuts. Can't tell - currently._
 
 ### Leaked Manual: "SOM 1-01: Extraterrestrial Entities and Technology, Recovery and Disposal"
-_Pre-disclosure._
+_Pre-disclosure. Probably fake._
 
-This seems too well done/organized for 1954, but still makes for an interesting read. Great [X-COM](https://en.wikipedia.org/wiki/XCOM) material at the minimum. Some researchers think it's fake.<br>
+This seems too well done/organized for 1954, but still makes for an interesting read. Great [X-COM](https://en.wikipedia.org/wiki/XCOM) material at the minimum.<br>
 
 https://majesticdocuments.com/pdf/som101_part1.pdf<br>
 https://majesticdocuments.com/pdf/som101_part2.pdf
