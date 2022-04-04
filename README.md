@@ -284,7 +284,7 @@ https://majesticdocuments.com/pdf/som101_part2.pdf
 Seems to align with statements made by Corso, Davis, possibly Elizondo.
 
 ### Sherman 
-_Pre-disclosure. Claimed to have a clearance._
+_Pre-disclosure. Claimed to have a clearance. I doubt this is real, but who knows._
 
 "ABOVE BLACK - Project Preserve Destiny - An Insider's Account of Alien Contact and Government Coverup", Dan Sherman (USAF, worked for the NSA as an Electronic Intelligence Specialist)<br>
 
