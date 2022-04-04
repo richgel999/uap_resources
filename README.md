@@ -189,8 +189,10 @@ https://www.openminds.tv/wp-content/uploads/Rockefeller-Briefing-Document.pdf
 
 ## Key Technologies
 
-Metamaterials, Metamaterial Antennas:<br>
-https://en.wikipedia.org/wiki/Metamaterial_antenna#Metamaterials_surface_antenna_technology
+If you have any actual "exotic materials" (say, from a crashed UAP) you should contact the TTSA or [To The Stars](https://www.linkedin.com/company/to-the-stars-inc-/about/) folks ASAP. Be sure to get a contract signed before handing over anything.
+
+Metamaterials:<br>
+https://en.wikipedia.org/wiki/Metamaterial_antenna
 
 ## Other Misc. Resources
 
