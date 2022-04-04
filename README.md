@@ -193,7 +193,7 @@ https://en.wikipedia.org/wiki/Metamaterial_antenna#Metamaterials_surface_antenna
 
 _Useful/educational material. Not sorted/categorized yet._
 
-"Is UAP Dissemination actually coming?! EX CIA officer says yes- DNI and NASA Directors on board?": - 11/12/21<br>
+- "Is UAP Dissemination actually coming?! EX CIA officer says yes- DNI and NASA Directors on board?": - 11/12/21<br>
 https://www.youtube.com/watch?v=8DSTpEYYBrc
 
 - "David Fravor: UFOs, Aliens, Fighter Jets, and Aerospace Engineering", 9/8/2020:<br>
@@ -276,7 +276,7 @@ This seems too well done/organized for 1954, but still makes for an interesting 
 https://majesticdocuments.com/pdf/som101_part1.pdf<br>
 https://majesticdocuments.com/pdf/som101_part2.pdf
 
-Aligns with statements made by Corso, Davis, possibly Elizondo.
+Seems to align with statements made by Corso, Davis, possibly Elizondo.
 
 ### Sherman 
 _Pre-disclosure. Claimed to have a clearance._
