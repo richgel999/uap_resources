@@ -242,7 +242,7 @@ https://www.amazon.com/Phenomenon-John-Podesta/dp/B08HR9BVNM/ref=sr_1_1
 
 ### 1988 "UFO Cover-Up?: Live!" 
 
-A sigficant two hour live special from Washington DC in 1988. Had a live studio audience in [Gulf Breeze, FL](https://www.youtube.com/watch?v=pJzLKIqp-3w), a hotspot. Included some classified information (for '88) in the White House organization chart shown at 1:08:23. This special seemed to be trying to suppress a panic. [Cash-Landrum](https://en.wikipedia.org/wiki/Cash%E2%80%93Landrum_incident) witnesses were interviewed. It had a live telephone survey, asking the audience of Congressional Hearings should take place (the audience voted yes).
+A significant two hour live special from Washington DC in 1988. Had a live studio audience in [Gulf Breeze, FL](https://www.youtube.com/watch?v=pJzLKIqp-3w), a hotspot. Included some classified information (for '88) in the White House organization chart shown at 1:08:23. This special seemed to be trying to suppress a panic. The [Cash-Landrum](https://en.wikipedia.org/wiki/Cash%E2%80%93Landrum_incident) witnesses were interviewed. It had a live telephone survey, asking the audience if Congressional Hearings should take place (the audience voted yes).
 
 "The existence of the Parapsychology Research Unit, and in particular the DIA management of the "weird" division of the Intelligence Community, was still classified as SECRET/NOFORN/WNINTEL according to a FOIA CIA-released STAR GATE review of government parapsychology research dated May 10, 1995."
 
@@ -263,7 +263,7 @@ https://www.thedrive.com/the-war-zone/28729/docs-show-navy-got-ufo-patent-grante
 
 ## Wildcards 
 
-_This category is the rough equivalent to Corso's "Nut File". This information seems to fit into the puzzle. It may be real, or it may be nuts. Can't tell - currently._
+_This category is the rough equivalent to Corso's "Nut File". This information seems to fit into the very edges of the puzzle. It may be real, or it may be nuts. Can't tell - currently._
 
 ### Leaked Manual: "SOM 1-01: Extraterrestrial Entities and Technology, Recovery and Disposal"
 _Pre-disclosure. Probably fake._
@@ -282,7 +282,7 @@ _Pre-disclosure. Claimed to have a clearance._
 
 "During his twelve years in service he was recognised for heroism and has been decorated with the AF Commendation Medal, as well as the AF Achievement Medal with two oak leaf clusters and was honoured for service in the Persian Gulf War."
 
-~95% of his book is a vanilla story about working for the USAF/NSA. Very little of the book covers his claimed interactions with NHI's on behalf of the NSA. I have a problem accepting this as "canon" because if it's true the NSA has advanced quite far with NHI communication. Overall this is a very bizarre story. Perhaps it has "enhanced" with the NHI comms part to sell copies.
+~95% of his book is a vanilla story about working for the USAF/NSA. Very little of the book covers his claimed interactions with NHI's on behalf of the NSA. I have a problem accepting this as "canon" because if it's true the NSA has advanced quite far with NHI communication. Perhaps it was "enhanced" with the NHI comms part to sell copies.
 
 https://www.aboveblack.com/index.html<br>
 https://www.amazon.com/ABOVE-BLACK-Preserve-Insiders-Government-ebook/dp/B003L77MUU/ref=sr_1_1<br>
