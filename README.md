@@ -250,6 +250,9 @@ https://www.youtube.com/watch?v=t8a_wKO-uVs
 - Lehto: "Gulf Breeze has the Best Video of a Tic Tac?":<br>
 https://www.youtube.com/watch?v=RC3n29dkrvU
 
+- The Nimitz UFO incident (has a decent detailed early ~2004 timeline):<br>
+http://www.marcellocatalano.com/nimitz.html
+
 ## Documentaries
 
 ### "The Phenomenon"
