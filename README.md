@@ -193,6 +193,9 @@ https://en.wikipedia.org/wiki/Metamaterial_antenna#Metamaterials_surface_antenna
 
 _Useful/educational material. Not sorted/categorized yet._
 
+"Is UAP Dissemination actually coming?! EX CIA officer says yes- DNI and NASA Directors on board?": - 11/12/21<br>
+https://www.youtube.com/watch?v=8DSTpEYYBrc
+
 - "David Fravor: UFOs, Aliens, Fighter Jets, and Aerospace Engineering", 9/8/2020:<br>
 https://www.youtube.com/watch?v=aB8zcAttP1E
 
