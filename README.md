@@ -253,6 +253,9 @@ https://www.youtube.com/watch?v=RC3n29dkrvU
 - The Nimitz UFO incident (has a decent detailed early ~2004 timeline):<br>
 http://www.marcellocatalano.com/nimitz.html
 
+- The 2021 USS Kearsarge Sightings, Dave Beaty:<br>
+https://davebeaty.medium.com/the-2021-uss-kearsarge-sightings-fc83076822ef
+
 ## Documentaries
 
 ### "The Phenomenon"
