@@ -191,7 +191,7 @@ https://www.openminds.tv/wp-content/uploads/Rockefeller-Briefing-Document.pdf
 
 If you have any actual "exotic materials" (say, from a crashed UAP) you should contact the TTSA or [To The Stars](https://www.linkedin.com/company/to-the-stars-inc-/about/) folks ASAP. Be sure to get a contract signed before handing over anything.
 
-Metamaterials and Metamaterial Antennas are a _crucial technology_:
+Metamaterials and Metamaterial Antennas are a _crucial technology_:<br>
 https://en.wikipedia.org/wiki/Metamaterial<br>
 https://en.wikipedia.org/wiki/Metamaterial_antenna
 
