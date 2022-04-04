@@ -247,6 +247,9 @@ https://www.bibliotecapleyades.net/exopolitica/esp_exopolitics_ZZL.htm
 - "Former Pentagon official discusses UFO sightings in Canada and the United States" - former Pentagon official Chris Mellon, 6/2/2021:<br>
 https://www.youtube.com/watch?v=t8a_wKO-uVs
 
+- Lehto: "Gulf Breeze has the Best Video of a Tic Tac?":<br>
+https://www.youtube.com/watch?v=RC3n29dkrvU
+
 ## Documentaries
 
 ### "The Phenomenon"
