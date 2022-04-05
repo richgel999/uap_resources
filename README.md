@@ -306,10 +306,6 @@ https://blog.adamkehoe.com/answering-who-else-knows/
 - "VICE World News obtained nearly 300 pages of documents through freedom of information requests that include strange sightings from pilots, soldiers, and police officers.":<br>
 https://www.vice.com/en/article/z3ngvx/canadian-government-ufo-reports-release
 
-- "The Messengers: Owls, Synchronicity and the UFO Abductee", by Mike Clelland  (Author), Richard Dolan (Intro):<br>
-This book covers screen or false memories. I'm including it because externally induced screen or false memories seem to be occasionally part of the phenomenon, but this could be unrelated.<br>
-https://www.amazon.com/gp/product/B08J8BSPTC
-
 ## Documentaries
 
 ### "The Phenomenon"
@@ -349,6 +345,10 @@ https://majesticdocuments.com/pdf/som101_part1.pdf<br>
 https://majesticdocuments.com/pdf/som101_part2.pdf
 
 Seems to align with statements made by Corso, Davis, possibly Elizondo.
+
+- "The Messengers: Owls, Synchronicity and the UFO Abductee", by Mike Clelland  (Author), Richard Dolan (Intro):<br>
+This book covers screen or false memories. I'm including it because externally induced screen or false memories seem to be occasionally part of the phenomenon, but this could be unrelated.<br>
+https://www.amazon.com/gp/product/B08J8BSPTC
 
 ### Sherman 
 _Pre-disclosure. Claimed to have a clearance. I doubt this is real, but who knows._
