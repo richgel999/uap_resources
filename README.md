@@ -3,9 +3,14 @@ At this point in the UAP Disclosure (or "Scheduled Dissemination" - Ramirez) Pro
 
 Some of the key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Ramirez, Hastings and Hill, a few 1940's-1950's-era memo/report leaks, the declassified Austrialian report, and at least two NY Times articles (one published during the height of the pandemic in 2020, so it was probably missed by most). I believe this key material, taken as a whole, tells a reasonably coherent picture of UAP C/R's ("crash recoveries" or "crash retrievals" - NY Times, Puthoff/Davis/Corso/Crain/Mitchell) since the late 40's, and an active R&D (NY Times, Corso, Crain) and "Crash Retrieval Program" (NY Times, Davis, Admiral Wilson/Dr. Mitchell leak) that seeded US industry with "exotic materials" (Corso, Crain, Elizondo) or "retrieved materials" (NY Times). 
 
-![NY Times Article Clip](https://github.com/richgel999/uap_resources/blob/main/nytimes1.png "NY Times 2020 Article Confirming UAP Crash Retrievals and Materials")
-
 Lue Elizondo was right: "Do yourself a favor and arm yourself with knowledge. Be very careful who you listen [to] and the information that comes out...You know, look into their background."
+
+## NY Times Confirmation 7/28/2020
+
+This came out during the height of the pandemic, so we all missed it:
+
+https://www.nytimes.com/2020/07/28/insider/UFO-reporting.html
+![NY Times Article Clip](https://github.com/richgel999/uap_resources/blob/main/nytimes1.png "NY Times 2020 Article Confirming UAP Crash Retrievals and Materials")
 
 ## Key Personnel/Scientists/Witnesses (all have/had clearances)
 - Lt. Col. Philip J. Corso - Chief [Foreign Technology Division (FTD) of the US DoD](https://en.wikipedia.org/wiki/National_Air_and_Space_Intelligence_Center#Foreign_Technology_Division), Battalion Commander of European Air Defense, Chief of the US Counterintelligence Corps in Rome ([Wikipedia](https://en.wikipedia.org/wiki/Philip_J._Corso) and [Army Form 66](http://www.cufon.org/cufon/corso_da66.htm))
