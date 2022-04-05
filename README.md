@@ -259,6 +259,9 @@ http://www.marcellocatalano.com/nimitz.html
 - The 2021 USS Kearsarge Sightings, Dave Beaty:<br>
 https://davebeaty.medium.com/the-2021-uss-kearsarge-sightings-fc83076822ef
 
+- "The space force doesn’t talk about ufos, but new legislation may force it to":<br>
+https://thedebrief.org/the-space-force-doesnt-talk-about-ufos-but-new-legislation-may-force-it-to/
+
 ## Documentaries
 
 ### "The Phenomenon"
