@@ -36,6 +36,13 @@ Longer clip:<br>
 https://youtu.be/8DSTpEYYBrc?t=1112
 
 ### Dr. Eric W. Davis PhD
+
+Linkedin resume:<br>
+https://www.linkedin.com/in/eric-w-davis/
+
+Local mirror of his LinkedIn resume as an exported PDF file:<br>
+https://github.com/richgel999/uap_resources/blob/main/Davis_linkedin.pdf
+
 Clip of interview with Eric W. Davis, Ph.D - where he totally spills the beans<br>
 https://pastebin.com/MQHhUgYA<br>
 https://www.youtube.com/watch?v=k2gjPRv4E7s
