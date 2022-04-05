@@ -26,7 +26,7 @@ https://www.youtube.com/watch?v=LsgA0-wxmns
 Longer clip:<br>
 https://youtu.be/8DSTpEYYBrc?t=1112
 
-### Davis
+### Dr. Eric W. Davis PhD
 Clip of interview with Eric W. Davis, Ph.D - where he totally spills the beans<br>
 https://pastebin.com/MQHhUgYA<br>
 https://www.youtube.com/watch?v=k2gjPRv4E7s
@@ -55,11 +55,11 @@ https://www.youtube.com/watch?v=lVkTuFf2QsU
 Dr. Eric Davis - FTL Drives Low Energy Warp Bubbles<br>
 https://www.youtube.com/watch?v=5V7eoBUplv4
 
-### Puthoff
+### Dr. Hal E. Puthoff PhD
 Dr Hal Puthoff Presentation & Q&A - C/R or "Crash Retrievals", the new R&D program, DIA DIRD's, also has worked with Davis at EarthTech<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
 
-### Elizondo
+### Luis “Lue” Elizondo
 Lue Elizondo, statement during interviews of "exotic materials"<br>
 https://duckduckgo.com/?q=Elizondo+exotic+materials&ia=web
 
@@ -74,7 +74,7 @@ https://www.youtube.com/watch?v=4yX6ETCKyPo
 
 _TODO: More Elizondo interviews (there are so many it's hard for me to boil it down to a small key list)._
 
-### Ramirez
+### John F. Ramirez
 GS-15 CIA Officer John Ramirez<br>
 
 Slide deck, which was cleared by the CIA for public release:<br>
@@ -89,7 +89,7 @@ https://www.youtube.com/watch?v=zFQtYfOmxxs
 12/20/2021 Interview:<br>
 https://www.youtube.com/watch?v=F-b97V-Wkw0
 
-### Corso
+### Lt. Col. Philip J. Corso
 _Pre-disclosure_
 
 Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
@@ -98,7 +98,7 @@ https://www.openminds.tv/pdf/ufo-files/DawnOfANewAge.pdf
 Book on Army R&D feeding exotic UAP-sourced materials to US industry, the R area crash recovery (C/R), by Corso and Birnes<br>
 https://www.amazon.com/Day-After-Roswell-William-Birnes-ebook/dp/B000FBJHT4/
 
-### Crain
+### June Crain
 _Pre-disclosure_
 
 TELL MY STORY - June Crain: exotic materials, R C/R, [Paperclip Scientists](https://en.wikipedia.org/wiki/Operation_Paperclip), early [SAP](https://en.wikipedia.org/wiki/Special_access_program) projects, interviewed by [police sergeant James Clarkson](https://jamesclarksonufo.com/about/james-clarkson-biography)<br>
