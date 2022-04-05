@@ -1,5 +1,5 @@
 # Key OSINT UAP Resources
-At this point in the UAP Disclosure (or "Scheduled Dissemination" - Ramirez) Process what's been missing is a compilation of the key information from the people with [Security Clearances](https://en.wikipedia.org/wiki/Security_clearance). This repo aims to fill that gap.
+At this point in the UAP Disclosure (or "Scheduled Dissemination" - Ramirez) Process, what's been missing is a compilation of the key information from the people with [Security Clearances](https://en.wikipedia.org/wiki/Security_clearance). This repo aims to fill that gap.
 
 Some of the key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Ramirez, Hastings and Hill, a few 1940's-1950's-era memo/report leaks, the declassified Austrialian report, and some other things. I believe this key material, taken as a whole, tells a reasonably coherent picture of UAP C/R's ("crash recoveries" - Puthoff/Davis/Corso/Crain/Mitchell) since the late 40's, and an active R&D (Corso, Crain) and "Crash Retrieval Program" (Davis, Admiral Wilson/Dr. Mitchell leak) that seeded US industry with "exotic materials" (Corso, Crain, Elizondo). 
 
