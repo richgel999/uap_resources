@@ -72,9 +72,8 @@ https://twitter.com/richgel999/status/1511242287875080194
 
 The original security leak seems to be due to Dr. Edgar Mitchell's documents being found somewhat accidently after he passed away:<br>
 https://richarddolanmembers.com/articles/article-ufo-leak-of-the-century-richard-dolan-analyzes-the-admiral-wilson-leak/<br>
-https://twitter.com/richgel999/status/1511242287875080194
 
-This document aligns with what Dr. Eric Davis has been saying in public: There have been crashes, there's an R&D program, etc.
+The Wilson leak aligns with what Dr. Eric Davis has been saying in public: There have been crashes, there's an R&D program, etc. It mentions Dr. Eric W Davis (NIDS).
 
 ### Dr. Hal E. Puthoff PhD
 Dr Hal Puthoff Presentation & Q&A - he mentions C/R or the phrase "Crash Retrievals" twice, the new R&D program, DIA DIRD's, also has worked with Davis at EarthTech<br>
