@@ -222,7 +222,7 @@ https://en.wikipedia.org/wiki/Metamaterial_antenna
 July 28, 2020, Updated June 3, 2021<br>
 https://www.nytimes.com/2020/07/28/insider/UFO-reporting.html
 
-Dr. Eric Davis: Classified Briefing to the [Senate Armed Services Committee](https://en.wikipedia.org/wiki/United_States_Senate_Committee_on_Armed_Services) - 10/21/19<br>
+- Dr. Eric Davis: Classified Briefing to the [Senate Armed Services Committee](https://en.wikipedia.org/wiki/United_States_Senate_Committee_on_Armed_Services) - 10/21/19<br>
 https://www.nytimes.com/2020/07/23/us/politics/pentagon-ufo-harry-reid-navy.html
 
 ## Other Misc. Resources
