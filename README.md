@@ -316,6 +316,9 @@ https://www.vice.com/en/article/z3ngvx/canadian-government-ufo-reports-release
 - "That Time an Alien Spaceship Crashed in 1897...":<br>
 https://www.texasufosightings.com/buzz/that-time-an-alien-spaceship-crashed-in-1897
 
+- "Pentagon says UFOs sightings have left witnesses with radiation burns, brain damage and 'perceived time suspension' in newly released report from 2010: States they represent a 'threat to United States interest'":<br>
+https://www.dailymail.co.uk/news/article-10688573/Pentagon-says-UFOs-left-people-radiation-burns-brain-damage-time-suspension.html
+
 ## Documentaries
 
 ### "The Phenomenon"
