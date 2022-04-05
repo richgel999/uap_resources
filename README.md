@@ -56,7 +56,7 @@ Dr. Eric Davis - FTL Drives Low Energy Warp Bubbles<br>
 https://www.youtube.com/watch?v=5V7eoBUplv4
 
 ### Puthoff
-Dr Hal Puthoff Presentation & Q&A - C/R or "Crash Retrievals", the new R&D program, DIA DIRD's<br>
+Dr Hal Puthoff Presentation & Q&A - C/R or "Crash Retrievals", the new R&D program, DIA DIRD's, also has worked with Davis at EarthTech<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
 
 ### Elizondo
