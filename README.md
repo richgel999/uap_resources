@@ -265,7 +265,7 @@ https://thedebrief.org/the-space-force-doesnt-talk-about-ufos-but-new-legislatio
 - "The Admiral Wilson Leak: Evidence of USAPs (Unacknowledged Special Access Programs) & Reverse Engineering of Extraterrestrial technologies":<br>
 https://metallicman.com/laoban4site/the-admiral-wilson-leak-evidence-of-saps-special-access-programs-reverse-engineering/
 
-- "The Messengers: Owls, Synchronicity and the UFO Abductee", by Mike Clelland  (Author), Richard Dolan:<br>
+- "The Messengers: Owls, Synchronicity and the UFO Abductee", by Mike Clelland  (Author), Richard Dolan (Intro):<br>
 This book covers screen or false memories.
 https://www.amazon.com/gp/product/B08J8BSPTC
 
