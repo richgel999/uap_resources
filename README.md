@@ -109,7 +109,7 @@ https://www.youtube.com/watch?v=F-b97V-Wkw0
 
 ## Key Books/Documentaries
 
-_Core information about the topic._
+_Core information about the topic. The foundation._
 
 ### Hastings
 UAP's and Nukes - Robert L. Hastings is the world’s foremost researcher on the subject of UFO activity at nuclear weapons sites.<br>
