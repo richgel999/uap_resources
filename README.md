@@ -319,6 +319,9 @@ https://www.texasufosightings.com/buzz/that-time-an-alien-spaceship-crashed-in-1
 - "Pentagon says UFOs sightings have left witnesses with radiation burns, brain damage and 'perceived time suspension' in newly released report from 2010: States they represent a 'threat to United States interest'":<br>
 https://www.dailymail.co.uk/news/article-10688573/Pentagon-says-UFOs-left-people-radiation-burns-brain-damage-time-suspension.html
 
+- "NIDS Investigations of the Flying Triangle Enigma - August 2004":<br>
+https://web.archive.org/web/20071008195422/http://www.nidsci.org/articles/8_25trireport.php
+
 ## Documentaries
 
 ### "The Phenomenon"
