@@ -68,7 +68,7 @@ https://twitter.com/richgel999/status/1511242287875080194
 This document aligns with what Dr. Eric Davis has been saying in public: There have been crashes, there's an R&D program, etc.
 
 ### Dr. Hal E. Puthoff PhD
-Dr Hal Puthoff Presentation & Q&A - C/R or "Crash Retrievals", the new R&D program, DIA DIRD's, also has worked with Davis at EarthTech<br>
+Dr Hal Puthoff Presentation & Q&A - he mentions C/R or the phrase "Crash Retrievals" twice, the new R&D program, DIA DIRD's, also has worked with Davis at EarthTech<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
 
 ### Luis “Lue” Elizondo
