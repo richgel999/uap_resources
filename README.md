@@ -26,39 +26,6 @@ https://www.youtube.com/watch?v=LsgA0-wxmns
 Longer clip:<br>
 https://youtu.be/8DSTpEYYBrc?t=1112
 
-### Corso
-_Pre-disclosure_
-
-Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
-https://www.openminds.tv/pdf/ufo-files/DawnOfANewAge.pdf
-
-Book on Army R&D feeding exotic UAP-sourced materials to US industry, the R area crash recovery (C/R), by Corso and Birnes<br>
-https://www.amazon.com/Day-After-Roswell-William-Birnes-ebook/dp/B000FBJHT4/
-
-### Crain
-_Pre-disclosure_
-
-TELL MY STORY - June Crain: exotic materials, R C/R, [Paperclip Scientists](https://en.wikipedia.org/wiki/Operation_Paperclip), early [SAP](https://en.wikipedia.org/wiki/Special_access_program) projects, interviewed by [police sergeant James Clarkson](https://jamesclarksonufo.com/about/james-clarkson-biography)<br>
-https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG/
-
-Transcript of Clarkson interview with June Crain<br>
-https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf
-
-### Elizondo
-Lue Elizondo, statement during interviews of "exotic materials"<br>
-https://duckduckgo.com/?q=Elizondo+exotic+materials&ia=web
-
-Lue Elizondo, Disclosure Tonight - on counterintel funding media disinfo<br>
-https://pastebin.com/MFvwFq2W
-
-List of interviews with Lue Elizondo, others<br>
-https://github.com/noncoding3torus/ReferenceMaterial/
-
-Luis Elizondo on Unidentified Aerial Phenomena - British GQ<br>
-https://www.youtube.com/watch?v=4yX6ETCKyPo
-
-_TODO: More Elizondo interviews (there are so many it's hard for me to boil it down to a small key list)._
-
 ### Davis
 Clip of interview with Eric W. Davis, Ph.D - where he totally spills the beans<br>
 https://pastebin.com/MQHhUgYA<br>
@@ -92,6 +59,21 @@ https://www.youtube.com/watch?v=5V7eoBUplv4
 Dr Hal Puthoff Presentation & Q&A - C/R or "Crash Retrievals", the new R&D program, DIA DIRD's<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
 
+### Elizondo
+Lue Elizondo, statement during interviews of "exotic materials"<br>
+https://duckduckgo.com/?q=Elizondo+exotic+materials&ia=web
+
+Lue Elizondo, Disclosure Tonight - on counterintel funding media disinfo<br>
+https://pastebin.com/MFvwFq2W
+
+List of interviews with Lue Elizondo, others<br>
+https://github.com/noncoding3torus/ReferenceMaterial/
+
+Luis Elizondo on Unidentified Aerial Phenomena - British GQ<br>
+https://www.youtube.com/watch?v=4yX6ETCKyPo
+
+_TODO: More Elizondo interviews (there are so many it's hard for me to boil it down to a small key list)._
+
 ### Ramirez
 GS-15 CIA Officer John Ramirez<br>
 
@@ -106,6 +88,24 @@ https://www.youtube.com/watch?v=zFQtYfOmxxs
 
 12/20/2021 Interview:<br>
 https://www.youtube.com/watch?v=F-b97V-Wkw0
+
+### Corso
+_Pre-disclosure_
+
+Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
+https://www.openminds.tv/pdf/ufo-files/DawnOfANewAge.pdf
+
+Book on Army R&D feeding exotic UAP-sourced materials to US industry, the R area crash recovery (C/R), by Corso and Birnes<br>
+https://www.amazon.com/Day-After-Roswell-William-Birnes-ebook/dp/B000FBJHT4/
+
+### Crain
+_Pre-disclosure_
+
+TELL MY STORY - June Crain: exotic materials, R C/R, [Paperclip Scientists](https://en.wikipedia.org/wiki/Operation_Paperclip), early [SAP](https://en.wikipedia.org/wiki/Special_access_program) projects, interviewed by [police sergeant James Clarkson](https://jamesclarksonufo.com/about/james-clarkson-biography)<br>
+https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG/
+
+Transcript of Clarkson interview with June Crain<br>
+https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf
 
 ## Key Books/Documentaries
 
