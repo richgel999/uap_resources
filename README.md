@@ -62,7 +62,8 @@ Davis, Admiral Wilson, and Dr. Edgar Mitchell are all strongly linked:<br>
 https://twitter.com/richgel999/status/1511242287875080194
 
 The original security leak seems to be due to Dr. Edgar Mitchell's documents being found somewhat accidently after he passed away:<br>
-https://richarddolanmembers.com/articles/article-ufo-leak-of-the-century-richard-dolan-analyzes-the-admiral-wilson-leak/
+https://richarddolanmembers.com/articles/article-ufo-leak-of-the-century-richard-dolan-analyzes-the-admiral-wilson-leak/<br>
+https://twitter.com/richgel999/status/1511242287875080194
 
 This document aligns with what Dr. Eric Davis has been saying in public: There have been crashes, there's an R&D program, etc.
 
