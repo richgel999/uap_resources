@@ -300,12 +300,12 @@ https://thedebrief.org/the-space-force-doesnt-talk-about-ufos-but-new-legislatio
 - "The Admiral Wilson Leak: Evidence of USAPs (Unacknowledged Special Access Programs) & Reverse Engineering of Extraterrestrial technologies":<br>
 https://metallicman.com/laoban4site/the-admiral-wilson-leak-evidence-of-saps-special-access-programs-reverse-engineering/
 
-- "The Messengers: Owls, Synchronicity and the UFO Abductee", by Mike Clelland  (Author), Richard Dolan (Intro):<br>
-This book covers screen or false memories.<br>
-https://www.amazon.com/gp/product/B08J8BSPTC
-
 - Lue Elizondo's resignation letter, and answering "who else knows?":<br>
 https://blog.adamkehoe.com/answering-who-else-knows/
+
+- "The Messengers: Owls, Synchronicity and the UFO Abductee", by Mike Clelland  (Author), Richard Dolan (Intro):<br>
+This book covers screen or false memories. I'm including it because externally induced screen or false memories seem to be occasionally part of the phenomenon, but this could be unrelated.<br>
+https://www.amazon.com/gp/product/B08J8BSPTC
 
 ## Documentaries
 
