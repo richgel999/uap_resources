@@ -72,6 +72,10 @@ Dr Hal Puthoff Presentation & Q&A - he mentions C/R or the phrase "Crash Retriev
 https://www.youtube.com/watch?v=UnCjbN7LCCs
 
 ### Luis “Lue” Elizondo
+
+"Why Unidentified Aerial Phenomena Are A National Security Risk And Also An Opportunity For Progress":<br>
+https://medium.com/hackernoon/why-unidentified-aerial-phenomena-are-a-national-security-risk-and-also-an-opportunity-for-progress-5f219768fa8f
+
 Lue Elizondo, statement during interviews of "exotic materials"<br>
 https://duckduckgo.com/?q=Elizondo+exotic+materials&ia=web
 
