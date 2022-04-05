@@ -1,16 +1,23 @@
 # Key OSINT UAP Resources
 At this point in the UAP Disclosure (or "Scheduled Dissemination" - Ramirez) Process, what's been missing is a compilation of the key information from the historical and modern-day people with [Security Clearances](https://en.wikipedia.org/wiki/Security_clearance). This repo aims to fill that gap.
 
-Some of the key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Ramirez, Hastings and Hill, a few 1940's-1950's-era memo/report leaks, the declassified Austrialian report, and at least two NY Times articles (one published during the height of the pandemic in 2020, so it was probably missed by most). I believe this key material, taken as a whole, tells a reasonably coherent picture of UAP C/R's ("crash recoveries" or "crash retrievals" - NY Times, Puthoff/Davis/Corso/Crain/Mitchell) since the late 40's, and an active R&D (NY Times, Corso, Crain) and "Crash Retrieval Program" (NY Times, Davis, Admiral Wilson/Dr. Mitchell leak) that seeded US industry with "exotic materials" (Corso, Crain, Elizondo) or "retrieved materials" (NY Times). 
+Some of the key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Ramirez, Hastings and Hill, Astronaut Dr. Edgar Mitchell (the 6th person on the Moon), a few 1940's-1950's-era memo/report leaks, the declassified Austrialian report, and at least two NY Times articles (one published during the height of the pandemic in 2020, so it was probably missed by most). I believe this key material, taken as a whole, tells a reasonably coherent picture of UAP C/R's ("crash recoveries" or "crash retrievals" - NY Times, Puthoff/Davis/Corso/Crain/Mitchell) since the late 40's, and an active R&D (NY Times, Corso, Crain) and "Crash Retrieval Program" (NY Times, Davis, Admiral Wilson/Dr. Mitchell leak) that seeded US industry with "exotic materials" (Corso, Crain, Elizondo) or "retrieved materials" (NY Times). 
 
-Lue Elizondo was right: "Do yourself a favor and arm yourself with knowledge. Be very careful who you listen [to] and the information that comes out...You know, look into their background."
+[Lue Elizondo](https://en.wikipedia.org/wiki/Luis_Elizondo) was right: "Do yourself a favor and arm yourself with knowledge. Be very careful who you listen [to] and the information that comes out...You know, look into their background."
+
+## NY Times Confirmation 7/28/2020
+
+This came out during the height of the pandemic, so we all missed it:
+
+https://www.nytimes.com/2020/07/28/insider/UFO-reporting.html
+![NY Times Article Clip](https://github.com/richgel999/uap_resources/blob/main/nytimes1.png "NY Times 2020 Article Confirming UAP Crash Retrievals and Materials")
 
 ## Key Personnel/Scientists/Witnesses (all have/had clearances)
 - Lt. Col. Philip J. Corso - Chief [Foreign Technology Division (FTD) of the US DoD](https://en.wikipedia.org/wiki/National_Air_and_Space_Intelligence_Center#Foreign_Technology_Division), Battalion Commander of European Air Defense, Chief of the US Counterintelligence Corps in Rome ([Wikipedia](https://en.wikipedia.org/wiki/Philip_J._Corso) and [Army Form 66](http://www.cufon.org/cufon/corso_da66.htm))
 - Luis “Lue” Elizondo - Program Manager/Director for [AATIP](https://en.wikipedia.org/wiki/Advanced_Aerospace_Threat_Identification_Program), Career Intelligence Officer US Army and DoD, Counterintelligence Special Agent US Army ([Official Page](https://luiselizondo-official.com/), [Wikipedia](https://en.wikipedia.org/wiki/Luis_Elizondo), [Twitter](https://twitter.com/LueElizondo))
 - Dr. Eric W. Davis PhD - Astrophysicist (University of Arizona) with a background in Quantum Field Theory and Relativity, Consultant to US Air Force (AFRL)/DoD/DoE/NASA, and Senior Science Advisor at the Institute for Advanced Studies in Austin ([EarthTech](https://earthtech.org/pubs/davis/), [LinkedIn](https://www.linkedin.com/in/eric-w-davis/))
 - Dr. Hal E. Puthoff PhD - Electrical Engineer (Stanford), Director of the Institute for Advanced Studies at Austin, Chairman of the Science Advisory Board of [Bigelow Aerospace](https://bigelowaerospace.com/) ([Wikipedia](https://en.wikipedia.org/wiki/Harold_E._Puthoff) and [EarthTech](https://earthtech.org/pubs/puthoff/))
-- June Crain - Clerk/Stenographer [Wright-Patterson AFB](https://en.wikipedia.org/wiki/Wright-Patterson_Air_Force_Base), handled sensitive material, [Top Secret Clearance](https://en.wikipedia.org/wiki/Security_clearance#Top_Secret) ([Transcript](https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf), [book](https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG))
+- June Crain - Clerk/Stenographer [Wright-Patterson AFB](https://en.wikipedia.org/wiki/Wright-Patterson_Air_Force_Base), handled sensitive material, [Top Secret Clearance](https://en.wikipedia.org/wiki/Security_clearance#Top_Secret), interviewed by Police Detective Sergeant and Investigator [James E. Clarkson](https://www.spreaker.com/user/xzoneradiotv/james-e-clarkson-mufon-state-director-fo_3) ([Transcript](https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf), [book](https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG))
 - John F. Ramirez - Intelligence Analyst, GS-15 (equivalent to Colonel) CIA Directorate of Science and Technology, Directorate of Intelligence, and the ODNI National Counterproliferation Center (NCPC) 1984-2009. Chief, ELINT Analysis Branch specializing in Ballistic Missile Defense. Majored in Political Science, graduated George Washington University 1983, recipient of the CIA [Career Intelligence Medal](https://en.wikipedia.org/wiki/Career_Intelligence_Medal) 3/17/2010. ([Twitter](https://twitter.com/JRam_11_11))
 
 ## Key Material (All Have/Had Clearances)
@@ -65,9 +72,8 @@ https://twitter.com/richgel999/status/1511242287875080194
 
 The original security leak seems to be due to Dr. Edgar Mitchell's documents being found somewhat accidently after he passed away:<br>
 https://richarddolanmembers.com/articles/article-ufo-leak-of-the-century-richard-dolan-analyzes-the-admiral-wilson-leak/<br>
-https://twitter.com/richgel999/status/1511242287875080194
 
-This document aligns with what Dr. Eric Davis has been saying in public: There have been crashes, there's an R&D program, etc.
+The Wilson leak aligns with what Dr. Eric Davis has been saying in public: There have been crashes, there's an R&D program, etc. It mentions Dr. Eric W Davis (NIDS).
 
 ### Dr. Hal E. Puthoff PhD
 Dr Hal Puthoff Presentation & Q&A - he mentions C/R or the phrase "Crash Retrievals" twice, the new R&D program, DIA DIRD's, also has worked with Davis at EarthTech<br>
@@ -183,7 +189,7 @@ somewhere that may or may not be associated with government at this point, but
 certainly were at one time, that have this knowledge and have been attempting to
 conceal this knowledge are not permitted to be widely disseminated."
 
-This matches with Corso, Davis, Elizondo, Puthoff, and the [Admiral Wilson Leak](https://www.theblackvault.com/casefiles/the-admiral-wilson-leak-an-analysis/).
+This matches strongly with Corso and Davis, partially with Elizondo, weakly Puthoff, and strongly with the [Admiral Wilson Leak](https://www.theblackvault.com/casefiles/the-admiral-wilson-leak-an-analysis/).
 
 ## Vallée: "Pentacle" Memorandum
 
@@ -294,12 +300,14 @@ https://thedebrief.org/the-space-force-doesnt-talk-about-ufos-but-new-legislatio
 - "The Admiral Wilson Leak: Evidence of USAPs (Unacknowledged Special Access Programs) & Reverse Engineering of Extraterrestrial technologies":<br>
 https://metallicman.com/laoban4site/the-admiral-wilson-leak-evidence-of-saps-special-access-programs-reverse-engineering/
 
-- "The Messengers: Owls, Synchronicity and the UFO Abductee", by Mike Clelland  (Author), Richard Dolan (Intro):<br>
-This book covers screen or false memories.<br>
-https://www.amazon.com/gp/product/B08J8BSPTC
-
 - Lue Elizondo's resignation letter, and answering "who else knows?":<br>
 https://blog.adamkehoe.com/answering-who-else-knows/
+
+- "VICE World News obtained nearly 300 pages of documents through freedom of information requests that include strange sightings from pilots, soldiers, and police officers.":<br>
+https://www.vice.com/en/article/z3ngvx/canadian-government-ufo-reports-release
+
+- "That Time an Alien Spaceship Crashed in 1897...":<br>
+https://www.texasufosightings.com/buzz/that-time-an-alien-spaceship-crashed-in-1897
 
 ## Documentaries
 
@@ -340,6 +348,10 @@ https://majesticdocuments.com/pdf/som101_part1.pdf<br>
 https://majesticdocuments.com/pdf/som101_part2.pdf
 
 Seems to align with statements made by Corso, Davis, possibly Elizondo.
+
+### "The Messengers: Owls, Synchronicity and the UFO Abductee", by Mike Clelland  (Author), Richard Dolan (Intro):<br>
+This book covers screen or false memories. I'm including it because externally induced screen or false memories seem to be occasionally part of the phenomenon, but this could be unrelated.<br>
+https://www.amazon.com/gp/product/B08J8BSPTC
 
 ### Sherman 
 _Pre-disclosure. Claimed to have a clearance. I doubt this is real, but who knows._
