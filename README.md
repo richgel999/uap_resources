@@ -214,14 +214,17 @@ Metamaterials and Metamaterial Antennas are a _crucial technology_:<br>
 https://en.wikipedia.org/wiki/Metamaterial<br>
 https://en.wikipedia.org/wiki/Metamaterial_antenna
 
-## Other Misc. Resources
-
-_Useful/educational material. Not sorted/categorized yet._
+## NY Times
 
 - "Do We Believe in U.F.O.s? That’s the Wrong Question"
 
-"Numerous associates of the Pentagon program, with high security clearances and decades of involvement with official U.F.O. investigations, told us they were convinced such crashes have occurred, based on their access to classified information. But the retrieved materials themselves, and any data about them, are completely off-limits to anyone without clearances and a need to know."
+"Numerous associates of the Pentagon program, with high security clearances and decades of involvement with official U.F.O. investigations, told us they were convinced such crashes have occurred, based on their access to classified information. But the retrieved materials themselves, and any data about them, are completely off-limits to anyone without clearances and a need to know."<br>
+July 28, 2020, Updated June 3, 2021<br>
 https://www.nytimes.com/2020/07/28/insider/UFO-reporting.html
+
+## Other Misc. Resources
+
+_Useful/educational material. Not sorted/categorized yet._
 
 - "Is UAP Dissemination actually coming?! EX CIA officer says yes- DNI and NASA Directors on board?": - 11/12/21<br>
 https://www.youtube.com/watch?v=8DSTpEYYBrc
