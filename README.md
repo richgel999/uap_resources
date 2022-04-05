@@ -262,6 +262,9 @@ https://davebeaty.medium.com/the-2021-uss-kearsarge-sightings-fc83076822ef
 - "The space force doesn’t talk about ufos, but new legislation may force it to":<br>
 https://thedebrief.org/the-space-force-doesnt-talk-about-ufos-but-new-legislation-may-force-it-to/
 
+- "The Admiral Wilson Leak: Evidence of USAPs (Unacknowledged Special Access Programs) & Reverse Engineering of Extraterrestrial technologies":<br>
+https://metallicman.com/laoban4site/the-admiral-wilson-leak-evidence-of-saps-special-access-programs-reverse-engineering/
+
 ## Documentaries
 
 ### "The Phenomenon"
