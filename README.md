@@ -281,6 +281,9 @@ https://metallicman.com/laoban4site/the-admiral-wilson-leak-evidence-of-saps-spe
 This book covers screen or false memories.<br>
 https://www.amazon.com/gp/product/B08J8BSPTC
 
+- Lue Elizondo's resignation letter, and answering "who else knows?":<br>
+https://blog.adamkehoe.com/answering-who-else-knows/
+
 ## Documentaries
 
 ### "The Phenomenon"
