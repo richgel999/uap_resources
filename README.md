@@ -189,7 +189,7 @@ somewhere that may or may not be associated with government at this point, but
 certainly were at one time, that have this knowledge and have been attempting to
 conceal this knowledge are not permitted to be widely disseminated."
 
-This matches with Corso, Davis, Elizondo, Puthoff, and the [Admiral Wilson Leak](https://www.theblackvault.com/casefiles/the-admiral-wilson-leak-an-analysis/).
+This matches with strongly with Corso and Davis, partially Elizondo, weakly Puthoff, and strongly the [Admiral Wilson Leak](https://www.theblackvault.com/casefiles/the-admiral-wilson-leak-an-analysis/).
 
 ## Vallée: "Pentacle" Memorandum
 
