@@ -58,6 +58,14 @@ https://www.youtube.com/watch?v=lVkTuFf2QsU
 Dr. Eric Davis - FTL Drives Low Energy Warp Bubbles<br>
 https://www.youtube.com/watch?v=5V7eoBUplv4
 
+Davis, Admiral Wilson, and Dr. Edgar Mitchell are all strongly linked:<br>
+https://twitter.com/richgel999/status/1511242287875080194
+
+The original security leak seems to be due to Dr. Edgar Mitchell's documents being found somewhat accidently after he passed away:<br>
+https://richarddolanmembers.com/articles/article-ufo-leak-of-the-century-richard-dolan-analyzes-the-admiral-wilson-leak/
+
+This document aligns with what Dr. Eric Davis has been saying in public: There have been crashes, there's an R&D program, etc.
+
 ### Dr. Hal E. Puthoff PhD
 Dr Hal Puthoff Presentation & Q&A - C/R or "Crash Retrievals", the new R&D program, DIA DIRD's, also has worked with Davis at EarthTech<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
