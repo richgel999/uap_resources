@@ -328,6 +328,9 @@ https://web.archive.org/web/20071008195422/http://www.nidsci.org/articles/8_25tr
 - "McDonnell Douglas studied UFOs in the 1960s" - An early attempt at reverse engineering UAP's:<br>
 https://documents.theblackvault.com/documents/MUFON/Journals/2008/October_2008.pdf?fbclid=IwAR3H9N3gTyNFuN_p5Gi_xmQ8m0KcDaEqw7KOWm_YLLY2qRTeLg53vkPcdHg
 
+- More on UAP baiting:<br>
+https://thehermeticpenetrator.medium.com/on-baiting-the-ufo-trickster-the-control-system-hypothesis-479bd712e7ef
+
 ## Documentaries
 
 ### "The Phenomenon"
