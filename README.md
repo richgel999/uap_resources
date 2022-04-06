@@ -86,6 +86,12 @@ The Wilson leak aligns with what Dr. Eric Davis has been saying in public: There
 Dr Hal Puthoff Presentation & Q&A - he mentions C/R or the phrase "Crash Retrievals" twice, the new R&D program, DIA DIRD's, also has worked with Davis at EarthTech<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
 
+"Dr. Hal Puthoff Address to the SSE/IRVA Conference, Las Vegas, 8 June 2018" (from @kentbye):<br>
+
+"The third area, Unidentified Aerial Phenomena, I have not published anything in. Why? Because the program I was involved in, in the Pentagon and in the intelligence community has been Top Secret, behind-the-scenes and only recently has there been release of information about the program.  So this is the first chance that I’ve had a chance to actually appear before the public and speak about details of the program and not go to jail. So I’m going to go along at a rapid clip; I’ve got a lot of information here. So here we go."
+
+https://paradigmresearchgroup.org/2018/06/12/dr-hal-puthoff-presentation-at-the-sse-irva-conference-las-vegas-nv-15-june-2018/
+
 ### Luis “Lue” Elizondo
 
 "Why Unidentified Aerial Phenomena Are A National Security Risk And Also An Opportunity For Progress":<br>
