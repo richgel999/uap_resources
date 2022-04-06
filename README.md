@@ -333,6 +333,8 @@ https://thehermeticpenetrator.medium.com/on-baiting-the-ufo-trickster-the-contro
 
 https://thehermeticpenetrator.medium.com/ufo-coaxing-yes-excerpts-from-a-bombshell-ufotwitter-thread-1cbf8ba38007
 
+https://medium.com/on-the-trail-of-the-saucers/alien-intelligence-and-the-nuclear-connection-6916450b7f9d
+
 ## Documentaries
 
 ### "The Phenomenon"
