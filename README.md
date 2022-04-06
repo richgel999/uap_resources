@@ -325,6 +325,9 @@ https://www.dailymail.co.uk/news/article-10688573/Pentagon-says-UFOs-left-people
 - "NIDS Investigations of the Flying Triangle Enigma - August 2004":<br>
 https://web.archive.org/web/20071008195422/http://www.nidsci.org/articles/8_25trireport.php
 
+- "McDonnell Douglas studied UFOs in the 1960s" - An early attempt at reverse engineering UAP's:<br>
+https://documents.theblackvault.com/documents/MUFON/Journals/2008/October_2008.pdf?fbclid=IwAR3H9N3gTyNFuN_p5Gi_xmQ8m0KcDaEqw7KOWm_YLLY2qRTeLg53vkPcdHg
+
 ## Documentaries
 
 ### "The Phenomenon"
