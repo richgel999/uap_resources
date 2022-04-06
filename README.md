@@ -331,6 +331,8 @@ https://documents.theblackvault.com/documents/MUFON/Journals/2008/October_2008.p
 - More on UAP baiting:<br>
 https://thehermeticpenetrator.medium.com/on-baiting-the-ufo-trickster-the-control-system-hypothesis-479bd712e7ef
 
+https://thehermeticpenetrator.medium.com/ufo-coaxing-yes-excerpts-from-a-bombshell-ufotwitter-thread-1cbf8ba38007
+
 ## Documentaries
 
 ### "The Phenomenon"
