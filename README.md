@@ -223,11 +223,14 @@ https://www.openminds.tv/wp-content/uploads/Rockefeller-Briefing-Document.pdf
 
 ## Key Technologies
 
-If you have any actual "exotic materials" (say, from a crashed UAP) you should contact the TTSA or [To The Stars](https://www.linkedin.com/company/to-the-stars-inc-/about/) folks ASAP. Be sure to get a contract signed before handing over anything. Also note that you should be careful, because Russian and Chinese intelligence will be wanting to get their hands on this strategically important technological astromaterial.
+If you have any actual "exotic materials" (say, from a crashed UAP) you should contact the TTSA or [To The Stars](https://www.linkedin.com/company/to-the-stars-inc-/about/) folks ASAP. Be sure to get a contract signed before handing over anything. Also note that you should be careful, because Russian and Chinese intelligence will be wanting to get their hands on this strategically important technological astromaterial. 
 
 Metamaterials and Metamaterial Antennas are a _crucial technology_:<br>
 https://en.wikipedia.org/wiki/Metamaterial<br>
 https://en.wikipedia.org/wiki/Metamaterial_antenna
+
+The laws for meteorite collectors probably apply, until there are specific laws for technological astromaterials:<br>
+https://www.space.com/18009-meteorite-collectors-public-lands-rules.html
 
 ## NY Times
 
