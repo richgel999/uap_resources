@@ -335,6 +335,8 @@ https://thehermeticpenetrator.medium.com/ufo-coaxing-yes-excerpts-from-a-bombshe
 
 https://medium.com/on-the-trail-of-the-saucers/alien-intelligence-and-the-nuclear-connection-6916450b7f9d
 
+https://twitter.com/UFOthinker/status/1504850741135126531
+
 - Ariel school landing:<br>
 https://twitter.com/UFOBreddit/status/1508706215068585985
 
