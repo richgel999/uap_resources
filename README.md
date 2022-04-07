@@ -371,7 +371,7 @@ https://americanbuddhist.net/2022/02/01/ex-cia-officer-jim-semivan-theres-a-whol
 - Astronaught Buzz Aldrin - it's a long documentary and the signal to noise ratio probably isn't very good, but he is interviewed:<br>
 https://youtu.be/wxERd9ImAwY
 
-Aldrin clip:<br>
+One (of many) Aldrin clips:<br>
 https://youtu.be/wxERd9ImAwY?t=1907
 
 - Robert (Bob) Dean - passed away:<br>
