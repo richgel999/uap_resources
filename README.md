@@ -371,6 +371,9 @@ https://americanbuddhist.net/2022/02/01/ex-cia-officer-jim-semivan-theres-a-whol
 - Astronaught Buzz Aldrin - it's a long documentary and the signal to noise ratio probably isn't very good, but he is interviewed:<br>
 https://youtu.be/wxERd9ImAwY
 
+- Robert (Bob) Dean - passed away:<br>
+https://www.colinandrews.net/Bob-Dean-Passed-Away.html
+
 ## Documentaries
 
 ### "The Phenomenon"
