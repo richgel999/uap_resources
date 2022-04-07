@@ -380,6 +380,9 @@ https://www.colinandrews.net/Bob-Dean-Passed-Away.html
 - Ken Johnson - ex-NASA, censored Moon information:<br>
 https://ufocongress.com/ken-johnston/
 
+- Dr. Roger Leir - implants:<br>
+https://www.youtube.com/watch?v=twmWA9p99go
+
 ## Documentaries
 
 ### "The Phenomenon"
