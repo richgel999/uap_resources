@@ -362,6 +362,12 @@ https://twitter.com/UFOBreddit/status/1508706215068585985
 - "Garry Nolan: UFOs and Aliens":<br>
 https://www.youtube.com/watch?v=uTCc2-1tbBQ
 
+- "UFOs and the CIA", both Semivan and Ramirez:<br>
+https://www.coasttocoastam.com/show/2022-01-30-show/
+
+- 'Ex-CIA officer Jim Semivan: “There’s a whole other reality that surrounds us that we just simply don’t have the ability to see.”'
+https://americanbuddhist.net/2022/02/01/ex-cia-officer-jim-semivan-theres-a-whole-other-reality-that-surrounds-us-that-we-just-simply-dont-have-the-ability-to-see/
+
 ## Documentaries
 
 ### "The Phenomenon"
