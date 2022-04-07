@@ -1,7 +1,7 @@
 # Key OSINT UAP Resources
 At this point in the UAP Disclosure (or "Scheduled Dissemination" - Ramirez) Process, what's been missing is a compilation of the key information from the historical and modern-day people with [Security Clearances](https://en.wikipedia.org/wiki/Security_clearance). This repo aims to fill that gap.
 
-Some of the key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Ramirez, Hastings and Hill, Astronaut Dr. Edgar Mitchell (the 6th person on the Moon), a few 1940's-1950's-era memo/report leaks, the declassified Austrialian report, and at least two NY Times articles (one published during the height of the pandemic in 2020, so it was probably missed by most). I believe this key material, taken as a whole, tells a reasonably coherent picture of UAP C/R's ("crash recoveries" or "crash retrievals" - NY Times, Puthoff/Davis/Corso/Crain/Mitchell) since the late 40's, and an active R&D (NY Times, Corso, Crain) and "Crash Retrieval Program" (NY Times, Davis, Admiral Wilson/Dr. Mitchell leak) that seeded US industry with "exotic materials" (Corso, Crain, Elizondo) or "retrieved materials" (NY Times). 
+Some of the key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Ramirez, Hastings and Hill, Astronaut Dr. Edgar Mitchell (the 6th person on the Moon), a few 1940's-1950's-era memo/report leaks, the declassified Austrialian report, and at least two NY Times articles (one published during the height of the pandemic in 2020, so it was probably missed by most). I believe this key material, taken as a whole using [Bayesian inference](https://en.wikipedia.org/wiki/Bayesian_inference), tells a reasonably coherent picture of UAP C/R's ("crash recoveries" or "crash retrievals" - NY Times, Puthoff/Davis/Corso/Crain/Mitchell) since the late 40's, and an active R&D (NY Times, Corso, Crain) and "Crash Retrieval Program" (NY Times, Davis, Admiral Wilson/Dr. Mitchell leak) that seeded US industry with "exotic materials" (Corso, Crain, Elizondo) or "retrieved materials" (NY Times). 
 
 [Lue Elizondo](https://en.wikipedia.org/wiki/Luis_Elizondo) was right: "Do yourself a favor and arm yourself with knowledge. Be very careful who you listen [to] and the information that comes out...You know, look into their background."
 
@@ -17,8 +17,9 @@ https://www.nytimes.com/2020/07/28/insider/UFO-reporting.html
 - Luis “Lue” Elizondo - Program Manager/Director for [AATIP](https://en.wikipedia.org/wiki/Advanced_Aerospace_Threat_Identification_Program), Career Intelligence Officer US Army and DoD, Counterintelligence Special Agent US Army ([Official Page](https://luiselizondo-official.com/), [Wikipedia](https://en.wikipedia.org/wiki/Luis_Elizondo), [Twitter](https://twitter.com/LueElizondo))
 - Dr. Eric W. Davis PhD - Astrophysicist (University of Arizona) with a background in Quantum Field Theory and Relativity, Consultant to US Air Force (AFRL)/DoD/DoE/NASA, and Senior Science Advisor at the Institute for Advanced Studies in Austin ([EarthTech](https://earthtech.org/pubs/davis/), [LinkedIn](https://www.linkedin.com/in/eric-w-davis/))
 - Dr. Hal E. Puthoff PhD - Electrical Engineer (Stanford), Director of the Institute for Advanced Studies at Austin, Chairman of the Science Advisory Board of [Bigelow Aerospace](https://bigelowaerospace.com/) ([Wikipedia](https://en.wikipedia.org/wiki/Harold_E._Puthoff) and [EarthTech](https://earthtech.org/pubs/puthoff/))
-- June Crain - Clerk/Stenographer [Wright-Patterson AFB](https://en.wikipedia.org/wiki/Wright-Patterson_Air_Force_Base), handled sensitive material, [Top Secret Clearance](https://en.wikipedia.org/wiki/Security_clearance#Top_Secret), interviewed by Police Detective Sergeant and Investigator [James E. Clarkson](https://www.spreaker.com/user/xzoneradiotv/james-e-clarkson-mufon-state-director-fo_3) ([Transcript](https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf), [book](https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG))
+- June Crain - Clerk/Stenographer [Wright-Patterson AFB](https://en.wikipedia.org/wiki/Wright-Patterson_Air_Force_Base), handled sensitive material, [Top Secret Clearance](https://en.wikipedia.org/wiki/Security_clearance#Top_Secret), interviewed by Police Detective Sergeant and Investigator [James E. Clarkson](https://www.spreaker.com/user/xzoneradiotv/james-e-clarkson-mufon-state-director-fo_3) before she passed away ([Transcript](https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf), [book](https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG))
 - John F. Ramirez - Intelligence Analyst, GS-15 (equivalent to Colonel) CIA Directorate of Science and Technology, Directorate of Intelligence, and the ODNI National Counterproliferation Center (NCPC) 1984-2009. Chief, ELINT Analysis Branch specializing in Ballistic Missile Defense. Majored in Political Science, graduated George Washington University 1983, recipient of the CIA [Career Intelligence Medal](https://en.wikipedia.org/wiki/Career_Intelligence_Medal) 3/17/2010. ([Twitter](https://twitter.com/JRam_11_11))
+- James Semivan - CIA 25 (Senior Intelligence Service), co-founder/VP Operations of TTSA, also founded [To The Stars](https://www.linkedin.com/company/to-the-stars-inc-).
 
 ## Key Material (All Have/Had Clearances)
 
@@ -36,6 +37,13 @@ Longer clip:<br>
 https://youtu.be/8DSTpEYYBrc?t=1112
 
 ### Dr. Eric W. Davis PhD
+
+Linkedin resume:<br>
+https://www.linkedin.com/in/eric-w-davis/
+
+Local mirror of his LinkedIn resume as an exported PDF file:<br>
+https://github.com/richgel999/uap_resources/blob/main/Davis_linkedin.pdf
+
 Clip of interview with Eric W. Davis, Ph.D - where he totally spills the beans<br>
 https://pastebin.com/MQHhUgYA<br>
 https://www.youtube.com/watch?v=k2gjPRv4E7s
@@ -78,6 +86,12 @@ The Wilson leak aligns with what Dr. Eric Davis has been saying in public: There
 ### Dr. Hal E. Puthoff PhD
 Dr Hal Puthoff Presentation & Q&A - he mentions C/R or the phrase "Crash Retrievals" twice, the new R&D program, DIA DIRD's, also has worked with Davis at EarthTech<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
+
+"Dr. Hal Puthoff Address to the SSE/IRVA Conference, Las Vegas, 8 June 2018" (from @kentbye):<br>
+
+"The third area, Unidentified Aerial Phenomena, I have not published anything in. Why? Because the program I was involved in, in the Pentagon and in the intelligence community has been Top Secret, behind-the-scenes and only recently has there been release of information about the program.  So this is the first chance that I’ve had a chance to actually appear before the public and speak about details of the program and not go to jail. So I’m going to go along at a rapid clip; I’ve got a lot of information here. So here we go."
+
+https://paradigmresearchgroup.org/2018/06/12/dr-hal-puthoff-presentation-at-the-sse-irva-conference-las-vegas-nv-15-june-2018/
 
 ### Luis “Lue” Elizondo
 
@@ -130,6 +144,13 @@ https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG/
 
 Transcript of Clarkson interview with June Crain<br>
 https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf
+
+### James Semivan
+
+25 year CIA Officer (Senior Intelligence Service), TTSA VP of Ops, Co-Founder "To The Stars" 
+
+Talks about his close encounter experience, and his personal perspective or best guess on the situation (mass human rights violations):<br>
+https://www.youtube.com/watch?v=7xBVCi_hIa0
 
 ## Key Books/Documentaries
 
@@ -191,6 +212,9 @@ conceal this knowledge are not permitted to be widely disseminated."
 
 This matches strongly with Corso and Davis, partially with Elizondo, weakly Puthoff, and strongly with the [Admiral Wilson Leak](https://www.theblackvault.com/casefiles/the-admiral-wilson-leak-an-analysis/).
 
+Another set of interviews. I may elevate Edgar Mitchell to a key source:<br>
+https://in5d.com/dr-edgar-mitchell-aliens-are-real-and-are-watching-us/
+
 ## Vallée: "Pentacle" Memorandum
 
 A key 1953 document found by early researcher and computer scientist [Jacques Vallée](https://www.jacquesvallee.net/), which he pushed to get officially declassified. Vallée stated in [The Phenomenon](https://www.amazon.com/Phenomenon-John-Podesta/dp/B08HR9BVNM/ref=sr_1_1) documentary that this document "changed his life". Document was signed by H.C. Cross (Dr. Howard C. Cross) - Director of Exotic Metallergy - [Battelle Memorial Institute](https://en.wikipedia.org/wiki/Battelle_Memorial_Institute) - US National Labs.
@@ -216,13 +240,18 @@ https://www.openminds.tv/wp-content/uploads/Rockefeller-Briefing-Document.pdf
 
 ## Key Technologies
 
-If you have any actual "exotic materials" (say, from a crashed UAP) you should contact the TTSA or [To The Stars](https://www.linkedin.com/company/to-the-stars-inc-/about/) folks ASAP. Be sure to get a contract signed before handing over anything.
+If you have any actual "exotic materials" (say, from a crashed UAP) you should contact the TTSA or [To The Stars](https://www.linkedin.com/company/to-the-stars-inc-/about/) folks ASAP. Be sure to get a contract signed before handing over anything. Also note that you should be careful, because Russian and Chinese intelligence will be wanting to get their hands on this strategically important technological astromaterial. 
 
 Metamaterials and Metamaterial Antennas are a _crucial technology_:<br>
 https://en.wikipedia.org/wiki/Metamaterial<br>
 https://en.wikipedia.org/wiki/Metamaterial_antenna
 
+The laws for meteorite collectors probably apply, until there are specific laws for technological astromaterials:<br>
+https://www.space.com/18009-meteorite-collectors-public-lands-rules.html
+
 ## NY Times
+
+(Hint: If you press escape during the page load at the right time, the nag screen shouldn't appear.)
 
 - "Do We Believe in U.F.O.s? That’s the Wrong Question"
 
@@ -232,6 +261,9 @@ https://www.nytimes.com/2020/07/28/insider/UFO-reporting.html
 
 - Dr. Eric Davis: Classified Briefing to the [Senate Armed Services Committee](https://en.wikipedia.org/wiki/United_States_Senate_Committee_on_Armed_Services) - 10/21/19<br>
 https://www.nytimes.com/2020/07/23/us/politics/pentagon-ufo-harry-reid-navy.html
+
+- Navy Reports Describe Encounters With Unexplained Flying Objects:<br>
+https://www.nytimes.com/2020/05/14/us/politics/navy-ufo-reports.html?action=click&module=RelatedLinks&pgtype=Article
 
 ## Other Misc. Resources
 
@@ -276,9 +308,6 @@ https://www.amazon.com/Children-Roswell-Seven-Decade-Intimidation-Cover-Ups-eboo
 - Massive Twitter thread by @kentbye with the latest developments<br>
 https://twitter.com/kentbye/status/943238420037431297
 
-- 25 year CIA Officer (Senior Intelligence Service), TTSA VP of Ops, Co-Founder "To The Stars" [Jim Semivan](https://www.linkedin.com/in/jim-semivan-3b703227/) on his Close Encounter Experience (best part is near the end)<br>
-https://www.youtube.com/watch?v=7xBVCi_hIa0
-
 - "The White House Role in Crashed UFO Retrievals" - From a paper presented at the Crashed Retrieval Conference, Las Vegas November 16, 2003:<br>
 https://www.bibliotecapleyades.net/exopolitica/esp_exopolitics_ZZL.htm
 
@@ -308,6 +337,51 @@ https://www.vice.com/en/article/z3ngvx/canadian-government-ufo-reports-release
 
 - "That Time an Alien Spaceship Crashed in 1897...":<br>
 https://www.texasufosightings.com/buzz/that-time-an-alien-spaceship-crashed-in-1897
+
+- "Pentagon says UFOs sightings have left witnesses with radiation burns, brain damage and 'perceived time suspension' in newly released report from 2010: States they represent a 'threat to United States interest'":<br>
+https://www.dailymail.co.uk/news/article-10688573/Pentagon-says-UFOs-left-people-radiation-burns-brain-damage-time-suspension.html
+
+- "NIDS Investigations of the Flying Triangle Enigma - August 2004":<br>
+https://web.archive.org/web/20071008195422/http://www.nidsci.org/articles/8_25trireport.php
+
+- "McDonnell Douglas studied UFOs in the 1960s" - An early attempt at reverse engineering UAP's:<br>
+https://documents.theblackvault.com/documents/MUFON/Journals/2008/October_2008.pdf?fbclid=IwAR3H9N3gTyNFuN_p5Gi_xmQ8m0KcDaEqw7KOWm_YLLY2qRTeLg53vkPcdHg
+
+- More on UAP baiting:<br>
+https://thehermeticpenetrator.medium.com/on-baiting-the-ufo-trickster-the-control-system-hypothesis-479bd712e7ef
+
+https://thehermeticpenetrator.medium.com/ufo-coaxing-yes-excerpts-from-a-bombshell-ufotwitter-thread-1cbf8ba38007
+
+https://medium.com/on-the-trail-of-the-saucers/alien-intelligence-and-the-nuclear-connection-6916450b7f9d
+
+https://twitter.com/UFOthinker/status/1504850741135126531
+
+- Ariel school landing:<br>
+https://twitter.com/UFOBreddit/status/1508706215068585985
+
+- "Garry Nolan: UFOs and Aliens":<br>
+https://www.youtube.com/watch?v=uTCc2-1tbBQ
+
+- "UFOs and the CIA", both Semivan and Ramirez:<br>
+https://www.coasttocoastam.com/show/2022-01-30-show/
+
+- 'Ex-CIA officer Jim Semivan: “There’s a whole other reality that surrounds us that we just simply don’t have the ability to see.”'
+https://americanbuddhist.net/2022/02/01/ex-cia-officer-jim-semivan-theres-a-whole-other-reality-that-surrounds-us-that-we-just-simply-dont-have-the-ability-to-see/
+
+- Astronaught Buzz Aldrin - it's a long documentary and the signal to noise ratio probably isn't very good, but he is interviewed:<br>
+https://youtu.be/wxERd9ImAwY
+
+One (of many) Aldrin clips:<br>
+https://youtu.be/wxERd9ImAwY?t=1907
+
+- Robert (Bob) Dean - passed away:<br>
+https://www.colinandrews.net/Bob-Dean-Passed-Away.html
+
+- Ken Johnson - ex-NASA, censored Moon information:<br>
+https://ufocongress.com/ken-johnston/
+
+- Dr. Roger Leir - implants:<br>
+https://www.youtube.com/watch?v=twmWA9p99go
 
 ## Documentaries
 
