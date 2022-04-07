@@ -147,7 +147,7 @@ https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf
 
 ### James Semivan
 
-25 year CIA Officer (Senior Intelligence Service), TTSA VP of Ops, Co-Founder "To The Stars" [Jim Semivan](https://www.linkedin.com/in/jim-semivan-3b703227/) on his Close Encounter Experience (best part is near the end)<br>
+25 year CIA Officer (Senior Intelligence Service), TTSA VP of Ops, Co-Founder "To The Stars" [Jim Semivan](https://www.linkedin.com/in/jim-semivan-3b703227/) on his close encounter experience and his perspective on the situation.
 https://www.youtube.com/watch?v=7xBVCi_hIa0
 
 ## Key Books/Documentaries
