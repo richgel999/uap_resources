@@ -19,6 +19,7 @@ https://www.nytimes.com/2020/07/28/insider/UFO-reporting.html
 - Dr. Hal E. Puthoff PhD - Electrical Engineer (Stanford), Director of the Institute for Advanced Studies at Austin, Chairman of the Science Advisory Board of [Bigelow Aerospace](https://bigelowaerospace.com/) ([Wikipedia](https://en.wikipedia.org/wiki/Harold_E._Puthoff) and [EarthTech](https://earthtech.org/pubs/puthoff/))
 - June Crain - Clerk/Stenographer [Wright-Patterson AFB](https://en.wikipedia.org/wiki/Wright-Patterson_Air_Force_Base), handled sensitive material, [Top Secret Clearance](https://en.wikipedia.org/wiki/Security_clearance#Top_Secret), interviewed by Police Detective Sergeant and Investigator [James E. Clarkson](https://www.spreaker.com/user/xzoneradiotv/james-e-clarkson-mufon-state-director-fo_3) before she passed away ([Transcript](https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf), [book](https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG))
 - John F. Ramirez - Intelligence Analyst, GS-15 (equivalent to Colonel) CIA Directorate of Science and Technology, Directorate of Intelligence, and the ODNI National Counterproliferation Center (NCPC) 1984-2009. Chief, ELINT Analysis Branch specializing in Ballistic Missile Defense. Majored in Political Science, graduated George Washington University 1983, recipient of the CIA [Career Intelligence Medal](https://en.wikipedia.org/wiki/Career_Intelligence_Medal) 3/17/2010. ([Twitter](https://twitter.com/JRam_11_11))
+- James Semivan - CIA 25 (Senior Intelligence Service), co-founder/VP Operations of TTSA. 
 
 ## Key Material (All Have/Had Clearances)
 
@@ -143,6 +144,11 @@ https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG/
 
 Transcript of Clarkson interview with June Crain<br>
 https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf
+
+### James Semivan
+
+25 year CIA Officer (Senior Intelligence Service), TTSA VP of Ops, Co-Founder "To The Stars" [Jim Semivan](https://www.linkedin.com/in/jim-semivan-3b703227/) on his Close Encounter Experience (best part is near the end)<br>
+https://www.youtube.com/watch?v=7xBVCi_hIa0
 
 ## Key Books/Documentaries
 
@@ -296,9 +302,6 @@ https://www.amazon.com/Children-Roswell-Seven-Decade-Intimidation-Cover-Ups-eboo
 
 - Massive Twitter thread by @kentbye with the latest developments<br>
 https://twitter.com/kentbye/status/943238420037431297
-
-- 25 year CIA Officer (Senior Intelligence Service), TTSA VP of Ops, Co-Founder "To The Stars" [Jim Semivan](https://www.linkedin.com/in/jim-semivan-3b703227/) on his Close Encounter Experience (best part is near the end)<br>
-https://www.youtube.com/watch?v=7xBVCi_hIa0
 
 - "The White House Role in Crashed UFO Retrievals" - From a paper presented at the Crashed Retrieval Conference, Las Vegas November 16, 2003:<br>
 https://www.bibliotecapleyades.net/exopolitica/esp_exopolitics_ZZL.htm
