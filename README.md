@@ -212,6 +212,9 @@ conceal this knowledge are not permitted to be widely disseminated."
 
 This matches strongly with Corso and Davis, partially with Elizondo, weakly Puthoff, and strongly with the [Admiral Wilson Leak](https://www.theblackvault.com/casefiles/the-admiral-wilson-leak-an-analysis/).
 
+Another set of interviews. I may elevate Edgar Mitchell to a key source:<br>
+https://in5d.com/dr-edgar-mitchell-aliens-are-real-and-are-watching-us/
+
 ## Vallée: "Pentacle" Memorandum
 
 A key 1953 document found by early researcher and computer scientist [Jacques Vallée](https://www.jacquesvallee.net/), which he pushed to get officially declassified. Vallée stated in [The Phenomenon](https://www.amazon.com/Phenomenon-John-Podesta/dp/B08HR9BVNM/ref=sr_1_1) documentary that this document "changed his life". Document was signed by H.C. Cross (Dr. Howard C. Cross) - Director of Exotic Metallergy - [Battelle Memorial Institute](https://en.wikipedia.org/wiki/Battelle_Memorial_Institute) - US National Labs.
