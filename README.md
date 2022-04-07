@@ -368,6 +368,9 @@ https://www.coasttocoastam.com/show/2022-01-30-show/
 - 'Ex-CIA officer Jim Semivan: “There’s a whole other reality that surrounds us that we just simply don’t have the ability to see.”'
 https://americanbuddhist.net/2022/02/01/ex-cia-officer-jim-semivan-theres-a-whole-other-reality-that-surrounds-us-that-we-just-simply-dont-have-the-ability-to-see/
 
+- Astronaught Buzz Aldrin - it's a long documentary and the signal to noise ratio probably isn't very good, but he is interviewed:<br>
+https://youtu.be/wxERd9ImAwY
+
 ## Documentaries
 
 ### "The Phenomenon"
