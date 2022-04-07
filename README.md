@@ -377,6 +377,9 @@ https://youtu.be/wxERd9ImAwY?t=1907
 - Robert (Bob) Dean - passed away:<br>
 https://www.colinandrews.net/Bob-Dean-Passed-Away.html
 
+- Ken Johnson - ex-NASA, censored Moon information:<br>
+https://ufocongress.com/ken-johnston/
+
 ## Documentaries
 
 ### "The Phenomenon"
