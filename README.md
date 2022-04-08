@@ -386,6 +386,9 @@ https://www.youtube.com/watch?v=twmWA9p99go
 - "UFOs: Generals, Pilots and Government Officials Go On the Record", by Leslie Kean:<br>
 https://www.amazon.com/UFOs-Generals-Pilots-Government-Officials-ebook/dp/B0036S4C66
 
+- "In Plain Sight: An investigation into UFOs and impossible science", by Ross Coulthart:<br>
+https://www.amazon.com/Plain-Sight-investigation-impossible-science-ebook/dp/B08VYR4DZ6
+
 ## Documentaries
 
 ### "The Phenomenon"
