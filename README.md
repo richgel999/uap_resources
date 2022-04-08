@@ -262,7 +262,7 @@ https://www.nytimes.com/2020/07/28/insider/UFO-reporting.html
 - Dr. Eric Davis: Classified Briefing to the [Senate Armed Services Committee](https://en.wikipedia.org/wiki/United_States_Senate_Committee_on_Armed_Services) - 10/21/19<br>
 https://www.nytimes.com/2020/07/23/us/politics/pentagon-ufo-harry-reid-navy.html
 
-- Navy Reports Describe Encounters With Unexplained Flying Objects, by Ralph Blumenthal and Leslie Kean:<br>
+- "Navy Reports Describe Encounters With Unexplained Flying Objects", by Ralph Blumenthal and Leslie Kean:<br>
 https://www.nytimes.com/2020/05/14/us/politics/navy-ufo-reports.html?action=click&module=RelatedLinks&pgtype=Article
 
 ## Other Misc. Resources
