@@ -399,6 +399,9 @@ https://www.amazon.com/UFOs-Generals-Pilots-Government-Officials-ebook/dp/B0036S
 - "In Plain Sight: An investigation into UFOs and impossible science", by Ross Coulthart:<br>
 https://www.amazon.com/Plain-Sight-investigation-impossible-science-ebook/dp/B08VYR4DZ6
 
+- "Missile Security Guards at Minot AFB Encounter Huge UFO Near Missile Silo in 1972":<br>
+https://www.youtube.com/watch?v=9v5WNP014Cc
+
 ## Documentaries
 
 ### "The Phenomenon"
