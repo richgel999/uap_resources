@@ -116,6 +116,8 @@ Luis Elizondo on Unidentified Aerial Phenomena - British GQ<br>
 https://www.youtube.com/watch?v=4yX6ETCKyPo
 
 Luis Elizondo on Tucker Carlson show 4/6/2022 - biological effects on military personell of this advanced technology:<br>
+
+Some clips: "or is it a product of something else, and we think right now, and again let me just preface preliminarily speaking, it's probably just a consequence of the advanced technology", "So no, I think it's fair to say at this point, suffice it to say this is probably not some sort of adversarial technology we're dealing with right. It's not human, so we should let that marinate for a minute."
 https://www.youtube.com/watch?v=q-5Rk47ol1c
 
 _TODO: More Elizondo interviews (there are so many it's hard for me to boil it down to a small key list)._
