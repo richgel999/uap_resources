@@ -383,6 +383,9 @@ https://ufocongress.com/ken-johnston/
 - Dr. Roger Leir - implants:<br>
 https://www.youtube.com/watch?v=twmWA9p99go
 
+- "UFOs: Generals, Pilots and Government Officials Go On the Record", by Leslie Kean:<br>
+https://www.amazon.com/UFOs-Generals-Pilots-Government-Officials-ebook/dp/B0036S4C66
+
 ## Documentaries
 
 ### "The Phenomenon"
