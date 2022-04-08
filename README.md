@@ -115,6 +115,9 @@ https://github.com/noncoding3torus/ReferenceMaterial/
 Luis Elizondo on Unidentified Aerial Phenomena - British GQ<br>
 https://www.youtube.com/watch?v=4yX6ETCKyPo
 
+Luis Elizondo on Tucker Carlson show 4/6/2022 - biological effects on military personell of this advanced technology:<br>
+https://www.youtube.com/watch?v=q-5Rk47ol1c
+
 _TODO: More Elizondo interviews (there are so many it's hard for me to boil it down to a small key list)._
 
 ### John F. Ramirez
