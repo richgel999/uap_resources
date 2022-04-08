@@ -253,6 +253,8 @@ https://www.space.com/18009-meteorite-collectors-public-lands-rules.html
 
 (Hint: If you press escape during the page load at the right time, the nag screen shouldn't appear.)
 
+"Ralph Blumenthal, a staff reporter for The New York Times from 1964 to 2009, is the author of "The Believer: Alien Encounters, Hard Science, and the Passion of John Mack," to be published by High Road Books of the University of New Mexico Press on March 15, 2021."
+
 - "Do We Believe in U.F.O.s? That’s the Wrong Question", by Ralph Blumenthal and Leslie Kean
 
 "Numerous associates of the Pentagon program, with high security clearances and decades of involvement with official U.F.O. investigations, told us they were convinced such crashes have occurred, based on their access to classified information. But the retrieved materials themselves, and any data about them, are completely off-limits to anyone without clearances and a need to know."<br>
@@ -264,6 +266,9 @@ https://www.nytimes.com/2020/07/23/us/politics/pentagon-ufo-harry-reid-navy.html
 
 - "Navy Reports Describe Encounters With Unexplained Flying Objects", by Ralph Blumenthal and Leslie Kean:<br>
 https://www.nytimes.com/2020/05/14/us/politics/navy-ufo-reports.html?action=click&module=RelatedLinks&pgtype=Article
+
+- "‘Wow, What Is That?’ Navy Pilots Report Unexplained Flying Objects", by Helene Cooper, Ralph Blumenthal and Leslie Kean
+https://www.nytimes.com/2019/05/26/us/politics/ufo-sightings-navy-pilots.html
 
 ## Other Misc. Resources
 
