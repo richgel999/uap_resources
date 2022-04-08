@@ -85,6 +85,9 @@ https://richarddolanmembers.com/articles/article-ufo-leak-of-the-century-richard
 
 The Wilson leak aligns with what Dr. Eric Davis has been saying in public: There have been crashes, there's an R&D program, etc. It mentions Dr. Eric W Davis (NIDS).
 
+"Pentagon Physicist Says Identified UFO's Can't Be Man-Made" - interview conducted after his classified briefing:<br>
+https://nerdist.com/article/pentagon-identified-ufos/
+
 ### Dr. Hal E. Puthoff PhD
 Dr Hal Puthoff Presentation & Q&A - he mentions C/R or the phrase "Crash Retrievals" twice, the new R&D program, DIA DIRD's, also has worked with Davis at EarthTech<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
