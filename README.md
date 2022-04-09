@@ -374,7 +374,7 @@ https://twitter.com/UFOthinker/status/1504850741135126531
 - Ariel school landing:<br>
 https://twitter.com/UFOBreddit/status/1508706215068585985
 
-- "Garry Nolan: UFOs and Aliens":<br>
+- "Garry Nolan: UFOs and Aliens": (Garry Nolan is a professor at Stanford University School of Medicine. His research is in microbiology, immunology, bio-computation, and analysis of UFO artifacts, materials, and reports of UFO encounters.)<br>
 https://www.youtube.com/watch?v=uTCc2-1tbBQ
 
 - "UFOs and the CIA", both Semivan and Ramirez:<br>
