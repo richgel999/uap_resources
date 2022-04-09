@@ -407,6 +407,9 @@ https://www.amazon.com/Plain-Sight-investigation-impossible-science-ebook/dp/B08
 - "Missile Security Guards at Minot AFB Encounter Huge UFO Near Missile Silo in 1972":<br>
 https://www.youtube.com/watch?v=9v5WNP014Cc
 
+- "Military personnel have been hurt after UFO encounters, expert says":<br>
+https://www.msn.com/en-us/news/world/military-personnel-have-been-hurt-after-ufo-encounters-expert-says/ar-AAVYRbp?cvid=0bbe078e187148d28d23bb185b9a9978&s=09
+
 ## Documentaries
 
 ### "The Phenomenon"
