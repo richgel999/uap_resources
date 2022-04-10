@@ -65,6 +65,9 @@ https://en.wikipedia.org/wiki/Sensitive_compartmented_information_facility
 Dr. Eric Davis: Classified Briefing to the [Senate Armed Services Committee](https://en.wikipedia.org/wiki/United_States_Senate_Committee_on_Armed_Services) - 10/21/19<br>
 https://www.nytimes.com/2020/07/23/us/politics/pentagon-ufo-harry-reid-navy.html
 
+For some verification, Christopher Mellon (former Deputy Assistant Secretary of Defense), when asked on CNN if he believed there are "objects in our possession that are from something other than this Earth", replied "that assertion should be taken seriously" (then later said that again). He also said he knew Davis well, and that Trump was considering declassifying information about Roswell.<br>
+https://www.youtube.com/watch?v=FTdCDfEu6x0
+
 Interview with Eric Davis on working for Pentagon UFO program - New York Post - 5/27/2020<br>
 https://www.youtube.com/watch?v=X3CcaP3yAkc
 
