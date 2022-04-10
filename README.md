@@ -50,7 +50,7 @@ Clip of interview with Eric W. Davis, Ph.D - where he totally spills the beans<b
 https://pastebin.com/MQHhUgYA<br>
 https://www.youtube.com/watch?v=k2gjPRv4E7s
 
-Clip of Eric W. Davis - Demand UAP Transparency - where he continues spilling the beans on the UAP C/R R&D Program<br>
+Clip of Eric W. Davis - Demand UAP Transparency:
 https://www.youtube.com/watch?v=x4-JfM4rkRY
 
 Interview with Dr. Eric Davis - 4/30/19<br>
