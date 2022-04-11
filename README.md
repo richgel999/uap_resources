@@ -296,6 +296,10 @@ https://www.nytimes.com/2019/05/26/us/politics/ufo-sightings-navy-pilots.html
 
 _Useful/educational material. Not sorted/categorized yet._
 
+- "Episode 5: Advanced Aerospace Threat and Identification Program (AATIP)" 
+Forwarded by Nick Madrid: "This presentation shows the slides that were used by Davis in the presentations they were found on a website controlled by Christopher melon"<br>
+https://www.youtube.com/watch?v=l24bPVlX4rI
+
 - "Is UAP Dissemination actually coming?! EX CIA officer says yes- DNI and NASA Directors on board?": - 11/12/21<br>
 https://www.youtube.com/watch?v=8DSTpEYYBrc
 
