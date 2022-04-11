@@ -249,6 +249,12 @@ https://www.theufochronicles.com/2009/06/roswell-metal-scientist-curious-dr.html
 https://www.ufoexplorations.com/roswell-metal-scientist-dr-cross<br>
 https://www.theufochronicles.com/2009/06/roswell-metal-scientist-curious-dr.html
 
+## Begin–Sadat Center for Strategic Studies Report
+
+"The Pentagon’s UAP Task Force Franc Milburn" from the Begin–Sadat Center for Strategic Studies:<br>
+Very good summary of the situatio since 2004, with many details.<br>
+https://besacenter.org/wp-content/uploads/2020/11/183-Milburn-study-final.pdf
+
 ## References, Briefing Documents
 
 DIA DIRD's (Defense Intelligence Agency's _Defense Intelligence Reference Documents_):<br>
