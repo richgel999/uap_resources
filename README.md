@@ -40,9 +40,9 @@ https://youtu.be/8DSTpEYYBrc?t=1112
 
 ### Dr. Eric W. Davis PhD
 
-![Davis on UAP Crashes](https://github.com/richgel999/uap_resources/blob/main/davis_crashes.png "Davis on UAP Crashes")
+Astrophysicist (University of Arizona) with a background in Quantum Field Theory and Relativity, Consultant to US Air Force (AFRL)/DoD/DoE/NASA, and Senior Science Advisor at the Institute for Advanced Studies in Austin. A DoD-deputized advisor to the Nimitz and Roosevelt UAP investigation, under a subcontract to the DoD.
 
-https://github.com/richgel999/uap_resources/blob/main/davis_crashes.png
+![Davis on UAP Crashes](https://github.com/richgel999/uap_resources/blob/main/davis_crashes.png "Davis on UAP Crashes")
 
 Linkedin resume:<br>
 https://www.linkedin.com/in/eric-w-davis/
