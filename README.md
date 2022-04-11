@@ -296,9 +296,6 @@ https://www.nytimes.com/2019/05/26/us/politics/ufo-sightings-navy-pilots.html
 
 _Useful/educational material. Not sorted/categorized yet._
 
-- "In Plain Sight: An investigation into UFOs and impossible science" by Ross Coulthart<br>
-https://www.amazon.com/Plain-Sight-investigation-impossible-science-ebook/dp/B08VYR4DZ6
-
 - "Is UAP Dissemination actually coming?! EX CIA officer says yes- DNI and NASA Directors on board?": - 11/12/21<br>
 https://www.youtube.com/watch?v=8DSTpEYYBrc
 
