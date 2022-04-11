@@ -106,28 +106,31 @@ https://paradigmresearchgroup.org/2018/06/12/dr-hal-puthoff-presentation-at-the-
 
 ### Luis “Lue” Elizondo
 
-"Why Unidentified Aerial Phenomena Are A National Security Risk And Also An Opportunity For Progress":<br>
+- "Why Unidentified Aerial Phenomena Are A National Security Risk And Also An Opportunity For Progress":<br>
 https://medium.com/hackernoon/why-unidentified-aerial-phenomena-are-a-national-security-risk-and-also-an-opportunity-for-progress-5f219768fa8f
 
-Lue Elizondo, statement during interviews of "exotic materials"<br>
+- Lue Elizondo, statement during interviews of "exotic materials"<br>
 https://duckduckgo.com/?q=Elizondo+exotic+materials&ia=web
 
-Lue Elizondo, Disclosure Tonight - on counterintel funding media disinfo<br>
+- Lue Elizondo, Disclosure Tonight - on counterintel funding media disinfo<br>
 https://pastebin.com/MFvwFq2W
 
-List of interviews with Lue Elizondo, others<br>
+- List of interviews with Lue Elizondo, others<br>
 https://github.com/noncoding3torus/ReferenceMaterial/
 
-Luis Elizondo on Unidentified Aerial Phenomena - British GQ<br>
+- Luis Elizondo on Unidentified Aerial Phenomena - British GQ<br>
 https://www.youtube.com/watch?v=4yX6ETCKyPo
 
-Luis Elizondo on Tucker Carlson show 4/6/2022 - biological effects on military personnel of this advanced technology:<br>
+- Luis Elizondo on Tucker Carlson show 4/6/2022 - biological effects on military personnel of this advanced technology:<br>
 
 Elizondo: "or is it a product of something else, and we think right now, and again let me just preface preliminarily speaking, it's probably just a consequence of the advanced technology", "So no, I think it's fair to say at this point, suffice it to say this is probably not some sort of adversarial technology we're dealing with" Tucker: "Right. It's not human, so we should let that marinate for a minute."<br>
 https://www.youtube.com/watch?v=q-5Rk47ol1c
 
-Clip on UAP transparency:<br>
+- Clip on UAP transparency:<br>
 https://www.youtube.com/watch?v=RuPBAAQ3Uiw
+
+- Lue Elizondo (ex-DoD, active clearance, former AATIP director), on Fox News 5/31/19, when asked "Do you think the US government has debris from a UFO in its possession right now?" he replied "simply put yes".<br>
+https://www.youtube.com/watch?v=M_LK6Wu3l4U&t=297s
 
 _TODO: More Elizondo interviews (there are so many it's hard for me to boil it down to a small key list)._
 
