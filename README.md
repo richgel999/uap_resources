@@ -40,6 +40,10 @@ https://youtu.be/8DSTpEYYBrc?t=1112
 
 ### Dr. Eric W. Davis PhD
 
+![Davis on UAP Crashes](https://github.com/richgel999/uap_resources/blob/main/davis_crashes.png "Davis on UAP Crashes")
+
+https://github.com/richgel999/uap_resources/blob/main/davis_crashes.png
+
 Linkedin resume:<br>
 https://www.linkedin.com/in/eric-w-davis/
 
