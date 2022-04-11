@@ -129,7 +129,7 @@ https://www.youtube.com/watch?v=q-5Rk47ol1c
 - Clip on UAP transparency:<br>
 https://www.youtube.com/watch?v=RuPBAAQ3Uiw
 
-- Lue Elizondo (ex-DoD, active clearance, former AATIP director), on Fox News 5/31/19, when asked "Do you think the US government has debris from a UFO in its possession right now?" he replied "simply put yes".<br>
+- Interview on Fox News 5/31/19, when asked "Do you think the US government has debris from a UFO in its possession right now?" Elizondo replied "simply put yes".<br>
 https://www.youtube.com/watch?v=M_LK6Wu3l4U&t=297s
 
 _TODO: More Elizondo interviews (there are so many it's hard for me to boil it down to a small key list)._
