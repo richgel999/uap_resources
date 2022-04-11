@@ -164,6 +164,9 @@ https://www.amazon.com/TELL-MY-STORY-Crain-Force-ebook/dp/B00SRWHNRG/
 Transcript of Clarkson interview with June Crain<br>
 https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf
 
+I personally interviewed over the phone James Clarkson in Washington State on the night of 4/8/2022. He is quite sharp and remembers Crain and her testimony very well. He is available for interviews by media/reporters. Just go to his website and contact him by phone or email:<br>
+https://jamesclarksonufo.com/about/james-clarkson-biography
+
 ### James Semivan
 
 25 year CIA Officer (Senior Intelligence Service), TTSA VP of Ops, Co-Founder "To The Stars" 
