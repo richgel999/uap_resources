@@ -47,6 +47,9 @@ Astrophysicist (University of Arizona) with a background in Quantum Field Theory
 Linkedin resume:<br>
 https://www.linkedin.com/in/eric-w-davis/
 
+Book: "Frontiers of Propulsion Science" by Marc G. Millis and Eric W. Davis:<br>
+https://arc.aiaa.org/doi/book/10.2514/4.479953
+
 Local mirror of his LinkedIn resume as an exported PDF file:<br>
 https://github.com/richgel999/uap_resources/blob/main/Davis_linkedin.pdf
 
