@@ -296,7 +296,7 @@ https://www.nytimes.com/2017/12/16/us/politics/pentagon-program-ufo-harry-reid.h
 - Video of Bigelow's highly secured vault, apparently showing a strange phenomenum around their highly secured materials:<br>
 https://twitter.com/richgel999/status/1513712160710479872
 
-More info:
+More info:<br>
 https://www.alienbabble.com/threads/the-orb-in-bigelows-vault.756/<br>
 https://silvarecord.com/2019/01/26/metamaterials-not-from-earth/
 
