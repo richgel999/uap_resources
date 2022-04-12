@@ -287,6 +287,18 @@ https://en.wikipedia.org/wiki/Metamaterial_antenna
 The laws for meteorite collectors probably apply, until there are specific laws for technological astromaterials:<br>
 https://www.space.com/18009-meteorite-collectors-public-lands-rules.html
 
+## Bigelow Aerospace
+
+- NY Times, 12/16/2017, said that Bigelow modified buildings in Vegas for the "storage of metal alloys and other materials that Mr. Elizondo 
+and program contractors said had been recovered from Unidentified Aerial Phenomena".
+https://www.nytimes.com/2017/12/16/us/politics/pentagon-program-ufo-harry-reid.html
+
+- Video of Bigelow's highly secured vault, apparently showing a strange phenomenum around their highly secured materials:<br>
+https://twitter.com/richgel999/status/1513712160710479872
+
+More info:
+https://www.alienbabble.com/threads/the-orb-in-bigelows-vault.756/
+
 ## NY Times
 
 (Hint: If you press escape during the page load at the right time, the nag screen shouldn't appear.)
