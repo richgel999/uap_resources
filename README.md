@@ -458,6 +458,9 @@ https://www.msn.com/en-us/news/world/military-personnel-have-been-hurt-after-ufo
 - "APEC 9/11 4K: Jack Sarfatti’s UAP Warp Drive & Tic Tac Tech"<br>
 https://www.youtube.com/watch?v=Dme-k600Md0
 
+- At APIC 9/11 4K, Sarfatti wrote up this link:<br>
+https://www.uaptheory.com/
+
 ## Documentaries
 
 ### "The Phenomenon"
