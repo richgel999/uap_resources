@@ -470,6 +470,9 @@ https://www.uaptheory.com/
 - "Five Characteristics Unique to UAP's" - February 16, 2018
 http://web.archive.org/web/20201101030959/https://dpo.tothestarsacademy.com/blog/five-characteristics-unique-to-uaps
 
+- Comprehensive list of interviews/TV shows/literally everything regarding recent events with UFOs:<br>
+https://docs.google.com/spreadsheets/d/1isNhyQJgwzp-Ca3VPoAZrGeEO-1gYdnqKJB4RkCeLlg/htmlview#
+
 ## Documentaries
 
 ### "The Phenomenon"
