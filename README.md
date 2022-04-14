@@ -324,6 +324,13 @@ https://www.nytimes.com/2020/05/14/us/politics/navy-ufo-reports.html?action=clic
 - "‘Wow, What Is That?’ Navy Pilots Report Unexplained Flying Objects", by Helene Cooper, Ralph Blumenthal and Leslie Kean
 https://www.nytimes.com/2019/05/26/us/politics/ufo-sightings-navy-pilots.html
 
+## Stanford Professor Dr. Garry Nolan
+
+"Dr. Garry Nolan is a Professor of Pathology at Stanford University. His research ranges from cancer to systems immunology. Dr. Nolan has also spent the last ten years working with a number of individual analyzing materials from alleged Unidentified Aerial Phenomenon. His robust resume—300 research articles, 40 US patents, founding of eight biotech companies, and honored as one of Stanford’s top 25 inventors—makes him, easily, one of the most accomplished scientists publicly studying UAPs."
+
+- "Stanford Professor Garry Nolan Is Analyzing Anomalous Materials From UFO Crashes":<br>
+https://www.vice.com/en/article/n7nzkq/stanford-professor-garry-nolan-analyzing-anomalous-materials-from-ufo-crashes
+
 ## Other Misc. Resources
 
 _Useful/educational material. Not sorted/categorized yet._
