@@ -331,6 +331,9 @@ https://www.nytimes.com/2019/05/26/us/politics/ufo-sightings-navy-pilots.html
 - "Stanford Professor Garry Nolan Is Analyzing Anomalous Materials From UFO Crashes":<br>
 https://www.vice.com/en/article/n7nzkq/stanford-professor-garry-nolan-analyzing-anomalous-materials-from-ufo-crashes
 
+- "Garry Nolan: UFOs and Aliens": (Garry Nolan is a professor at Stanford University School of Medicine. His research is in microbiology, immunology, bio-computation, and analysis of UFO artifacts, materials, and reports of UFO encounters.)<br>
+https://www.youtube.com/watch?v=uTCc2-1tbBQ
+
 ## Other Misc. Resources
 
 _Useful/educational material. Not sorted/categorized yet._
@@ -428,9 +431,6 @@ https://twitter.com/UFOthinker/status/1504850741135126531
 
 - Ariel school landing:<br>
 https://twitter.com/UFOBreddit/status/1508706215068585985
-
-- "Garry Nolan: UFOs and Aliens": (Garry Nolan is a professor at Stanford University School of Medicine. His research is in microbiology, immunology, bio-computation, and analysis of UFO artifacts, materials, and reports of UFO encounters.)<br>
-https://www.youtube.com/watch?v=uTCc2-1tbBQ
 
 - "UFOs and the CIA", both Semivan and Ramirez:<br>
 https://www.coasttocoastam.com/show/2022-01-30-show/
