@@ -339,6 +339,15 @@ https://www.youtube.com/watch?v=uTCc2-1tbBQ
 1:04:54: "involved with this for the last 10 years since the basically the CIA showed up in my office and asked me to help them um with some of their pilots and ground personnel who'd gotten too close to what they claimed were UFO's and that they've gotten sick"<br>
 https://www.youtube.com/watch?v=5e4GZ0zOgZs
 
+- "Do aliens want to talk to humans? | Garry Nolan and Lex Fridman":<br>
+https://www.youtube.com/watch?v=76ExSpmO6Gw
+
+- "A look inside people’s brains who say they’ve had a UFO encounter | New York Post":<br>
+https://www.youtube.com/watch?v=GpB4Ng51PQ8
+
+- "Is the US government in possession of UFOs | Garry Nolan and Lex Fridman":<br>
+https://www.youtube.com/watch?v=8zQkXRVTxxo
+
 ## Other Misc. Resources
 
 _Useful/educational material. Not sorted/categorized yet._
