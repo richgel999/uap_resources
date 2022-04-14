@@ -336,7 +336,7 @@ https://www.youtube.com/watch?v=uTCc2-1tbBQ
 
 - "Flow Stars featuring Garry Nolan (Stanford School of Medicine)":<br>
 
-"involved with this for the last 10 years since the basically the CIA showed up in my office and asked me to help them um with some of their pilots and ground personnel who'd gotten too close to what they claimed were UFO's and that they've gotten sick"<br>
+1:04:54: "involved with this for the last 10 years since the basically the CIA showed up in my office and asked me to help them um with some of their pilots and ground personnel who'd gotten too close to what they claimed were UFO's and that they've gotten sick"<br>
 https://www.youtube.com/watch?v=5e4GZ0zOgZs
 
 ## Other Misc. Resources
