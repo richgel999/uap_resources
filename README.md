@@ -331,8 +331,13 @@ https://www.nytimes.com/2019/05/26/us/politics/ufo-sightings-navy-pilots.html
 - "Stanford Professor Garry Nolan Is Analyzing Anomalous Materials From UFO Crashes":<br>
 https://www.vice.com/en/article/n7nzkq/stanford-professor-garry-nolan-analyzing-anomalous-materials-from-ufo-crashes
 
-- "Garry Nolan: UFOs and Aliens": (Garry Nolan is a professor at Stanford University School of Medicine. His research is in microbiology, immunology, bio-computation, and analysis of UFO artifacts, materials, and reports of UFO encounters.)<br>
+- "Garry Nolan: UFOs and Aliens": (Garry Nolan is a professor at Stanford University School of Medicine. His research is in microbiology, immunology, bio-computation, and analysis of UFO artifacts, materials, and reports of UFO encounters.):<br>
 https://www.youtube.com/watch?v=uTCc2-1tbBQ
+
+- "Flow Stars featuring Garry Nolan (Stanford School of Medicine)":<br>
+
+"involved with this for the last 10 years since the basically the CIA showed up in my office and asked me to help them um with some of their pilots and ground personnel who'd gotten too close to what they claimed were UFO's and that they've gotten sick"<br>
+https://www.youtube.com/watch?v=5e4GZ0zOgZs&t=4s
 
 ## Other Misc. Resources
 
