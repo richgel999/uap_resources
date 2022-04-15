@@ -545,9 +545,9 @@ https://www.thedrive.com/the-war-zone/28729/docs-show-navy-got-ufo-patent-grante
 _This category is the rough equivalent to Corso's "Nut File". This information seems to fit into the very edges of the puzzle. It may be real, or it may be nuts. Can't tell - currently._
 
 ### Leaked Manual: "SOM 1-01: Extraterrestrial Entities and Technology, Recovery and Disposal"
-_Pre-disclosure. Probably fake._
+_Pre-disclosure._
 
-This seems too well done/organized for 1954, but still makes for an interesting read. Great [X-COM](https://en.wikipedia.org/wiki/XCOM) material at the minimum.<br>
+Some researchers [believed it was real](https://www.stealthskater.com/Documents/Sherman_06.pdf). Great [X-COM](https://en.wikipedia.org/wiki/XCOM) material at the minimum.<br>
 
 https://majesticdocuments.com/pdf/som101_part1.pdf<br>
 https://majesticdocuments.com/pdf/som101_part2.pdf
