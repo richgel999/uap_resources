@@ -98,9 +98,6 @@ https://richarddolanmembers.com/articles/article-ufo-leak-of-the-century-richard
 
 The Wilson leak aligns with what Dr. Eric Davis has been saying in public: There have been crashes, there's an R&D program, etc. It mentions Dr. Eric W Davis (NIDS).
 
-Dolan's Admiral Wilson leak:<br>
-https://richarddolanmembers.com/articles/article-ufo-leak-of-the-century-richard-dolan-analyzes-the-admiral-wilson-leak/
-
 "Pentagon Physicist Says Identified UFO's Can't Be Man-Made" - interview conducted after his classified briefing:<br>
 https://nerdist.com/article/pentagon-identified-ufos/
 
