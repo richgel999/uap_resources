@@ -521,6 +521,9 @@ http://web.archive.org/web/20200924035931/http://www.ufoupdateslist.com/2000/jun
 - May 21, 2000, Boston Globe newspaper article "UFO Theorists Gain Support Abroad, But Repression At Home", by Leslie Kean:<br>
 https://isgp-studies.com/ufo-2000-05-21-boston-globe-ufo-theorists-gain-support-abroad
 
+- NRO document sent by Dr. Steve Greer to Admiral Wilson:<br>
+https://siriusdisclosure.com/wp-content/uploads/2012/12/NRO-Doc.pdf
+
 ## Documentaries
 
 ### "The Phenomenon"
