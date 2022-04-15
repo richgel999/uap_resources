@@ -515,6 +515,9 @@ https://imgur.com/a/ggIFTfQ
 - U.S. Naval Reserve Commander Willard H. Miller - lots of ties to Admiral Wilson Leak (EWD nodes), Leslie Kean, CSETI Disclosure Project, etc.
 http://web.archive.org/web/20200924035931/http://www.ufoupdateslist.com/2000/jun/m02-008.shtml
 
+- May 21, 2000, Boston Globe newspaper article "UFO Theorists Gain Support Abroad, But Repression At Home", by Leslie Kean:<br>
+https://isgp-studies.com/ufo-2000-05-21-boston-globe-ufo-theorists-gain-support-abroad
+
 ## Documentaries
 
 ### "The Phenomenon"
