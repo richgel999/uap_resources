@@ -536,6 +536,9 @@ https://www.ufojoe.net/miller-to-wilson-letter-1995/
 - "Former Sen. Harry Reid thinks Lockheed Martin may have UFO fragments":<br>
 https://nypost.com/2021/04/30/former-sen-harry-reid-thinks-lockheed-martin-may-have-ufo-fragments/
 
+- Baiting mission:<br>
+https://twitter.com/UFOBreddit/status/1508906284598366222
+
 ## Documentaries
 
 ### "The Phenomenon"
