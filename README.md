@@ -583,15 +583,17 @@ This book covers screen or false memories. I'm including it because externally i
 https://www.amazon.com/gp/product/B08J8BSPTC
 
 ### Sherman 
-_Pre-disclosure. Claimed to have a clearance. I doubt this is real, but who knows._
+_Pre-disclosure. Claimed to have a clearance._
 
 "ABOVE BLACK - Project Preserve Destiny - An Insider's Account of Alien Contact and Government Coverup", Dan Sherman (USAF, worked for the NSA as an Electronic Intelligence Specialist)<br>
 
 "During his twelve years in service he was recognised for heroism and has been decorated with the AF Commendation Medal, as well as the AF Achievement Medal with two oak leaf clusters and was honoured for service in the Persian Gulf War."
 
-~95% of his book is a vanilla story about working for the USAF/NSA. Very little of the book covers his claimed interactions with NHI's on behalf of the NSA. I have a problem accepting this as "canon" because if it's true the NSA has advanced quite far with NHI communication. Perhaps it was "enhanced" with the NHI comms part to sell copies.
+~95% of his book is a vanilla story about working for the USAF/NSA. Very little of the book covers his claimed interactions with NHI's on behalf of the NSA. I have a problem accepting this as "canon" because if it's true the NSA has advanced quite far with NHI communication.
 
 https://www.aboveblack.com/index.html<br>
 https://www.amazon.com/ABOVE-BLACK-Preserve-Insiders-Government-ebook/dp/B003L77MUU/ref=sr_1_1<br>
 https://thinkaboutit.site/ufos/project-preserve-destiny/<br>
 
+Potentially some corroboration:<br>
+https://exopolitics.org/nsa-document-supports-whistleblower-claim-of-alien-ufo-communication-program/
