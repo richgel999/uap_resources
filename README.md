@@ -107,6 +107,9 @@ https://www.reddit.com/r/aliens/comments/o39bi2/ralph_blumenthal_on_fade_to_blac
 Clip of NY Post interview:<br>
 https://twitter.com/MiddleOfMayhem/status/1286675164373987329
 
+Greenstreet interviewed Davis for 50 minutes, but only 27 minutes have been released so far (AFAIK). Why?<br>
+https://www.ufojoe.net/the-lost-interview-eric-davis-on-wilson/
+
 ### Dr. Hal E. Puthoff PhD
 Dr Hal Puthoff Presentation & Q&A - he mentions C/R or the phrase "Crash Retrievals" twice, the new R&D program, DIA DIRD's, also has worked with Davis at EarthTech<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
