@@ -506,6 +506,9 @@ https://www.youtube.com/watch?v=-K2aa6DJpvw
 - "The Covert World of UFO Crash Retrievals":<br>
 https://www.stealthskater.com/Documents/Sherman_06.pdf
 
+- Original IMGUR link to the "Admiral Wilson Leak" documents (should really be called the "EWD" notes):<br>
+https://imgur.com/a/ggIFTfQ
+
 ## Documentaries
 
 ### "The Phenomenon"
