@@ -512,6 +512,9 @@ https://www.stealthskater.com/Documents/Sherman_06.pdf
 - Original IMGUR link to the "Admiral Wilson Leak" documents (should really be called the "EWD" notes):<br>
 https://imgur.com/a/ggIFTfQ
 
+- U.S. Naval Reserve Commander Willard H. Miller - lots of ties to Admiral Wilson Leak (EWD nodes), Leslie Kean, CSETI Disclosure Project, etc.
+http://web.archive.org/web/20200924035931/http://www.ufoupdateslist.com/2000/jun/m02-008.shtml
+
 ## Documentaries
 
 ### "The Phenomenon"
