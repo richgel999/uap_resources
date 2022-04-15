@@ -503,6 +503,9 @@ https://medium.com/@nickmadrid68/uap-crash-retrievals-49969d75fe42
 - "Exo586 - Robert Wood - Leaked Government Documents And UFO Crash Retrievals":<br>
 https://www.youtube.com/watch?v=-K2aa6DJpvw
 
+- "The Covert World of UFO Crash Retrievals":<br>
+https://www.stealthskater.com/Documents/Sherman_06.pdf
+
 ## Documentaries
 
 ### "The Phenomenon"
