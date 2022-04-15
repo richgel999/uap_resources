@@ -104,6 +104,9 @@ https://nerdist.com/article/pentagon-identified-ufos/
 'Ralph Blumenthal on Fade to Black: "Congressional committees were briefed on the issue of materials recovery" including "the Senate Armed Services Committee and the Senate Intelligence Committee with reference in the slides to off-planet vehicles.':<br>
 https://www.reddit.com/r/aliens/comments/o39bi2/ralph_blumenthal_on_fade_to_black_congressional/
 
+Clip of NY Post interview:<br>
+https://twitter.com/MiddleOfMayhem/status/1286675164373987329?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1290051019901030401%7Ctwgr%5E%7Ctwcon%5Es3_&ref_url=https%3A%2F%2Fwww.ufojoe.net%2Fthe-lost-interview-eric-davis-on-wilson%2F
+
 ### Dr. Hal E. Puthoff PhD
 Dr Hal Puthoff Presentation & Q&A - he mentions C/R or the phrase "Crash Retrievals" twice, the new R&D program, DIA DIRD's, also has worked with Davis at EarthTech<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
