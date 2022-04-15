@@ -105,7 +105,7 @@ https://nerdist.com/article/pentagon-identified-ufos/
 https://www.reddit.com/r/aliens/comments/o39bi2/ralph_blumenthal_on_fade_to_black_congressional/
 
 Clip of NY Post interview:<br>
-https://twitter.com/MiddleOfMayhem/status/1286675164373987329?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1290051019901030401%7Ctwgr%5E%7Ctwcon%5Es3_&ref_url=https%3A%2F%2Fwww.ufojoe.net%2Fthe-lost-interview-eric-davis-on-wilson%2F
+https://twitter.com/MiddleOfMayhem/status/1286675164373987329
 
 ### Dr. Hal E. Puthoff PhD
 Dr Hal Puthoff Presentation & Q&A - he mentions C/R or the phrase "Crash Retrievals" twice, the new R&D program, DIA DIRD's, also has worked with Davis at EarthTech<br>
