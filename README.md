@@ -527,6 +527,9 @@ https://siriusdisclosure.com/wp-content/uploads/2012/12/NRO-Doc.pdf
 - "Letter – Commander Will Miller To Admiral Tom Wilson – June 28th, 1995":<br>
 https://www.ufojoe.net/miller-to-wilson-letter-1995/
 
+- "Former Sen. Harry Reid thinks Lockheed Martin may have UFO fragments":<br>
+https://nypost.com/2021/04/30/former-sen-harry-reid-thinks-lockheed-martin-may-have-ufo-fragments/
+
 ## Documentaries
 
 ### "The Phenomenon"
