@@ -548,7 +548,7 @@ https://supersoldiertalk.com/deathbed-confession-by-former-cia-agent-on-ufos-the
 - "We Are Not Alone" documentary (MJ12 documents):<br>
 https://www.bibliotecapleyades.net/sociopolitica/esp_sociopol_mj12_31.htm
 
-- Professor Dr. Shirley Wright, PhD, a student of Albert Einstein at Princeton ("Edith Simpson" in Stringfield's Crash Retrieval 5th status report)
+- Professor Dr. Shirley Wright, PhD, a student of Albert Einstein at Princeton with a security clearance ("Edith Simpson" in Stringfield's Crash Retrieval 5th status report)
 
 Audio interview:<br>
 https://www.youtube.com/watch?v=v6jBiWcWiEw
