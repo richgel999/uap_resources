@@ -545,6 +545,9 @@ https://twitter.com/UFOBreddit/status/1508906284598366222
 - "Deathbed Confession by former CIA agent on UFOs / The Anonymous Interview (Official Film Trailer)":<br>
 https://supersoldiertalk.com/deathbed-confession-by-former-cia-agent-on-ufos-the-anonymous-interview-official-film-trailer/
 
+- "We Are Not Alone" documentary (MJ12 documents):<br>
+https://www.bibliotecapleyades.net/sociopolitica/esp_sociopol_mj12_31.htm
+
 ## Documentaries
 
 ### "The Phenomenon"
