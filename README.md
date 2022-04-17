@@ -548,6 +548,14 @@ https://supersoldiertalk.com/deathbed-confession-by-former-cia-agent-on-ufos-the
 - "We Are Not Alone" documentary (MJ12 documents):<br>
 https://www.bibliotecapleyades.net/sociopolitica/esp_sociopol_mj12_31.htm
 
+- Professor Dr. Shirley Wright, PhD, a student of Albert Einstein at Princeton ("Edith Simpson" in Stringfield's Crash Retrieval 5th status report)
+
+Audio interview:<br>
+https://www.youtube.com/watch?v=v6jBiWcWiEw
+
+https://thepulse.one/2021/10/21/einsteins-student-claims-both-were-taken-to-examine-roswell-craft-beings/<br>
+https://www.planet-today.com/2021/10/albert-einstein-was-flown-to-roswell-in.html<br>
+
 ## Documentaries
 
 ### "The Phenomenon"
