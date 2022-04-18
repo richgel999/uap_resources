@@ -559,6 +559,9 @@ https://www.youtube.com/watch?v=v6jBiWcWiEw
 https://thepulse.one/2021/10/21/einsteins-student-claims-both-were-taken-to-examine-roswell-craft-beings/<br>
 https://www.planet-today.com/2021/10/albert-einstein-was-flown-to-roswell-in.html<br>
 
+- "Tom DeLonge’s Origin Story For To The Stars Academy Describes A Government UFO Info Operation":<br>
+https://www.thedrive.com/the-war-zone/28377/tom-delonges-origin-story-for-to-the-stars-academy-describes-a-government-info-operation
+
 ## Documentaries
 
 ### "The Phenomenon"
