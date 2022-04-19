@@ -562,6 +562,9 @@ https://www.planet-today.com/2021/10/albert-einstein-was-flown-to-roswell-in.htm
 - "Tom DeLonge’s Origin Story For To The Stars Academy Describes A Government UFO Info Operation":<br>
 https://www.thedrive.com/the-war-zone/28377/tom-delonges-origin-story-for-to-the-stars-academy-describes-a-government-info-operation
 
+- AASWAP vs. AATIP, interview with Elizondo:<br>
+https://www.mysterywire.com/ufo/aatip-aawsap-elizondo/
+
 ## Documentaries
 
 ### "The Phenomenon"
