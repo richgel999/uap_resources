@@ -360,6 +360,9 @@ https://www.youtube.com/watch?v=GpB4Ng51PQ8
 - "Is the US government in possession of UFOs | Garry Nolan and Lex Fridman":<br>
 https://www.youtube.com/watch?v=8zQkXRVTxxo
 
+- Former AFOSI counterintelligence officer Richard (Rick) Doty - admitted to "disinforming" witnesses:<br>
+https://www.youtube.com/watch?v=iIzVe8ZsyNg
+
 ## Other Misc. Resources
 
 _Useful/educational material. Not sorted/categorized yet._
