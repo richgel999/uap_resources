@@ -568,6 +568,9 @@ https://www.mysterywire.com/ufo/aatip-aawsap-elizondo/
 - Former [AFOSI](https://en.wikipedia.org/wiki/United_States_Air_Force_Office_of_Special_Investigations) counterintelligence officer Richard (Rick) Doty - admitted to "disinforming" witnesses:<br>
 https://www.youtube.com/watch?v=iIzVe8ZsyNg
 
+- "Notes on a 2002 meeting between Dr Eric Davis and Admiral Thomas Wilson: the source of the Grant Cameron document speaks out":<br>
+https://ufos-scientificresearch.blogspot.com/2019/06/notes-on-2002-meeting-between-dr-eric.html?m=1
+
 ## Documentaries
 
 ### "The Phenomenon"
