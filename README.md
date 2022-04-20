@@ -360,9 +360,6 @@ https://www.youtube.com/watch?v=GpB4Ng51PQ8
 - "Is the US government in possession of UFOs | Garry Nolan and Lex Fridman":<br>
 https://www.youtube.com/watch?v=8zQkXRVTxxo
 
-- Former AFOSI counterintelligence officer Richard (Rick) Doty - admitted to "disinforming" witnesses:<br>
-https://www.youtube.com/watch?v=iIzVe8ZsyNg
-
 ## Other Misc. Resources
 
 _Useful/educational material. Not sorted/categorized yet._
@@ -567,6 +564,9 @@ https://www.thedrive.com/the-war-zone/28377/tom-delonges-origin-story-for-to-the
 
 - AASWAP vs. AATIP, interview with Elizondo:<br>
 https://www.mysterywire.com/ufo/aatip-aawsap-elizondo/
+
+- Former [AFOSI](https://en.wikipedia.org/wiki/United_States_Air_Force_Office_of_Special_Investigations) counterintelligence officer Richard (Rick) Doty - admitted to "disinforming" witnesses:<br>
+https://www.youtube.com/watch?v=iIzVe8ZsyNg
 
 ## Documentaries
 
