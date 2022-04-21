@@ -171,6 +171,9 @@ https://www.youtube.com/watch?v=zFQtYfOmxxs
 12/20/2021 Interview:<br>
 https://www.youtube.com/watch?v=F-b97V-Wkw0
 
+Retired CIA Officer John Ramirez on the Agency, Orbs, Intelligence Gathering, And Much More:<br>
+https://www.youtube.com/watch?v=eXerKPm2-p4
+
 ### Lt. Col. Philip J. Corso
 _Pre-disclosure_
 
