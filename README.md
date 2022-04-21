@@ -151,6 +151,9 @@ https://www.youtube.com/watch?v=M_LK6Wu3l4U&t=297s
 - "Who is Dr. James T Lacatski, AAWSAP Program Manager?" - Elizondo has mentioned him several times, including by name:<br>
 https://atmosphericlights.com/category/who-is-dr-james-t-lacatski-aawsap-program-manager/
 
+- "Disclosure" has already happened:<br>
+https://youtu.be/sGGe0ht5xus?t=3600
+
 _TODO: More Elizondo interviews (there are so many it's hard for me to boil it down to a small key list)._
 
 ### John F. Ramirez
