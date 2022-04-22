@@ -152,7 +152,7 @@ https://www.youtube.com/watch?v=M_LK6Wu3l4U&t=297s
 https://atmosphericlights.com/category/who-is-dr-james-t-lacatski-aawsap-program-manager/
 
 - "Disclosure" has already happened:<br>
-https://youtu.be/sGGe0ht5xus?t=3600
+https://www.youtube.com/watch?v=B11EqMRxStA&t=3600s
 
 - "Luis Elizondo Interview: Garry Reid Aftermath, UFO Programs, and Classified UFO Briefings":<br>
 https://www.youtube.com/watch?v=tmi_kGtxZrM
