@@ -154,6 +154,9 @@ https://atmosphericlights.com/category/who-is-dr-james-t-lacatski-aawsap-program
 - "Disclosure" has already happened:<br>
 https://youtu.be/sGGe0ht5xus?t=3600
 
+- "Luis Elizondo Interview: Garry Reid Aftermath, UFO Programs, and Classified UFO Briefings":<br>
+https://www.youtube.com/watch?v=tmi_kGtxZrM
+
 _TODO: More Elizondo interviews (there are so many it's hard for me to boil it down to a small key list)._
 
 ### John F. Ramirez
@@ -582,6 +585,9 @@ https://youtu.be/NEAjBnb_K84?t=921
 
 - TTSA personally deliving retrieved UAP materials to EarthTech in Austin:<br>
 https://t.co/ahq82YdTvG
+
+- "Have UFO's ever attacked Terrestrial Aircraft?":<br>
+https://thedebrief.org/have-ufos-ever-attacked-terrestrial-aircraft/?utm_sq=h1is72ui79
 
 ## Documentaries
 
