@@ -589,6 +589,9 @@ https://t.co/ahq82YdTvG
 - "Have UFO's ever attacked Terrestrial Aircraft?":<br>
 https://thedebrief.org/have-ufos-ever-attacked-terrestrial-aircraft/?utm_sq=h1is72ui79
 
+- "The FAA finally admits it documents reports of Unidentified Aerial Phenomena" (John B. Alexander link):<br>
+https://thedebrief.org/the-faa-finally-admits-it-documents-reports-of-unidentified-aerial-phenomena/
+
 ## Documentaries
 
 ### "The Phenomenon"
