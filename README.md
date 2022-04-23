@@ -592,6 +592,9 @@ https://thedebrief.org/have-ufos-ever-attacked-terrestrial-aircraft/?utm_sq=h1is
 - "The FAA finally admits it documents reports of Unidentified Aerial Phenomena" (John B. Alexander link):<br>
 https://thedebrief.org/the-faa-finally-admits-it-documents-reports-of-unidentified-aerial-phenomena/
 
+- "Technology from Extraterrestrials (Lockheed Skunkworks & More)" - 2013 interview with Don Phillips:<br>
+https://www.youtube.com/watch?v=rBO8z9pHAuA
+
 ## Documentaries
 
 ### "The Phenomenon"
