@@ -598,6 +598,12 @@ https://www.youtube.com/watch?v=rBO8z9pHAuA
 - "Don Phillips from Lockheed Skunk Works UFO Encounter":<br>
 https://www.youtube.com/watch?v=nuq5klN_R-s
 
+- Testimony by Don Phillips:<br>
+https://www.bibliotecapleyades.net/disclosure/briefing/disclosure12.htm
+
+- 2001 National Press Club Event (Presented by Dr. Steven Greer) (includes Don Phillips):<br>
+https://www.youtube.com/watch?v=4DrcG7VGgQU
+
 ## Documentaries
 
 ### "The Phenomenon"
