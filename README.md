@@ -628,6 +628,9 @@ https://www.youtube.com/watch?v=Js-gZypx9xc<br>
 http://stargate007.blogspot.com/2009/03/secret-revealed-ufo-cover-up-live-1988.html<br>
 https://tomwhitmoreblog.wordpress.com/2020/05/22/ufo-coverup-live-transcripts/
 
+Oct. 7 1988: "Soviet Experts to Appear on UFO Show":<br>
+https://www.newspapers.com/clip/100682720/soviet-experts-to-appear-on-ufo/
+
 ## Recent US Navy Patents 
 
 Note: Pais doesn't like being associated with the UAP topic.<br>
