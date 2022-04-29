@@ -617,7 +617,7 @@ https://makingcontact.com/convergence-schedule/
 ### AAPC - June 3-5th 2022, Huntsville AL:
 https://www.explorescu.org/conferences
 
-### 1988 "UFO Cover-Up?: Live!" 
+### Oct. 14, 1988: "UFO Cover-Up?: Live!", aired on 130 stations
 
 A significant two hour live special from Washington DC in 1988. Had a live studio audience in [Gulf Breeze, FL](https://www.youtube.com/watch?v=pJzLKIqp-3w), a hotspot. Included some classified information (for '88) in the White House organization chart shown at 1:08:23. This special seemed to be trying to suppress a panic. The [Cash-Landrum](https://en.wikipedia.org/wiki/Cash%E2%80%93Landrum_incident) witnesses were interviewed. It had a live telephone survey, asking the audience if Congressional Hearings should take place (the audience voted yes).
 
