@@ -604,6 +604,10 @@ https://www.bibliotecapleyades.net/disclosure/briefing/disclosure12.htm
 - 2001 National Press Club Event (Presented by Dr. Steven Greer) (includes Don Phillips):<br>
 https://www.youtube.com/watch?v=4DrcG7VGgQU
 
+- Vasily Yeremenko, Major General of the FIB:<br>
+https://astralcitizens.com/russian-extraterrestrial-experiment-top-secret-project-details-revealed/<br>
+https://where-aliens.blogspot.com/2013/04/vasily-yeremenko-former-kgb-agent.html
+
 ## Documentaries
 
 ### "The Phenomenon"
