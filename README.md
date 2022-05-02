@@ -608,6 +608,9 @@ https://www.youtube.com/watch?v=4DrcG7VGgQU
 https://astralcitizens.com/russian-extraterrestrial-experiment-top-secret-project-details-revealed/<br>
 https://where-aliens.blogspot.com/2013/04/vasily-yeremenko-former-kgb-agent.html
 
+- "Larry King: The UFO Cover-Up? Live from Area 51 (1994)":<br>
+https://www.youtube.com/watch?v=Acp_PhbdUoM
+
 ## Documentaries
 
 ### "The Phenomenon"
