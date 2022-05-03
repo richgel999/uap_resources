@@ -509,6 +509,9 @@ https://www.youtube.com/watch?v=UEi--X6avAs
 - At APIC 9/11 4K, Sarfatti wrote up this link:<br>
 https://www.uaptheory.com/
 
+Archived version:
+http://web.archive.org/web/20220413061214/https://www.uaptheory.com/
+
 - "Five Characteristics Unique to UAP's" - February 16, 2018
 http://web.archive.org/web/20201101030959/https://dpo.tothestarsacademy.com/blog/five-characteristics-unique-to-uaps
 
