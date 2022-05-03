@@ -506,11 +506,15 @@ https://www.youtube.com/watch?v=Dme-k600Md0
 - "Panel discussion of UAP -Tic Tac Tech and the related physics - Drs Jack Sarfatti and Russell Targ"<br>
 https://www.youtube.com/watch?v=UEi--X6avAs
 
-- At APIC 9/11 4K, Sarfatti wrote up this link:<br>
+- uaptheory - the web site keeps being taken down:<br>
 https://www.uaptheory.com/
 
-Archived version:
+Archived versions:
 http://web.archive.org/web/20220413061214/https://www.uaptheory.com/
+
+http://web.archive.org/web/20210516172803/https://www.uaptheory.com/branchials/
+
+http://web.archive.org/web/20210520160134/https://www.uaptheory.com/habitable-worlds/
 
 - "Five Characteristics Unique to UAP's" - February 16, 2018
 http://web.archive.org/web/20201101030959/https://dpo.tothestarsacademy.com/blog/five-characteristics-unique-to-uaps
