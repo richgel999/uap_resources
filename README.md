@@ -14,6 +14,9 @@ This came out during the height of the pandemic, so we all missed it:
 https://www.nytimes.com/2020/07/28/insider/UFO-reporting.html
 ![NY Times Article Clip](https://github.com/richgel999/uap_resources/blob/main/nytimes1.png "NY Times 2020 Article Confirming UAP Crash Retrievals and Materials")
 
+Documentary:<br>
+https://www.youtube.com/watch?v=64s8ujoydRM&ab_channel=SHOWTIME
+
 ## Key Personnel/Scientists/Witnesses (all have/had clearances)
 - Lt. Col. Philip J. Corso - Chief [Foreign Technology Division (FTD) of the US DoD](https://en.wikipedia.org/wiki/National_Air_and_Space_Intelligence_Center#Foreign_Technology_Division), Battalion Commander of European Air Defense, Chief of the US Counterintelligence Corps in Rome ([Wikipedia](https://en.wikipedia.org/wiki/Philip_J._Corso) and [Army Form 66](http://www.cufon.org/cufon/corso_da66.htm))
 - Luis “Lue” Elizondo - Program Manager/Director for [AATIP](https://en.wikipedia.org/wiki/Advanced_Aerospace_Threat_Identification_Program), Career Intelligence Officer US Army and DoD, Counterintelligence Special Agent US Army ([Official Page](https://luiselizondo-official.com/), [Wikipedia](https://en.wikipedia.org/wiki/Luis_Elizondo), [Twitter](https://twitter.com/LueElizondo))
