@@ -373,6 +373,9 @@ https://www.youtube.com/watch?v=8zQkXRVTxxo
 
 _Useful/educational material. Not sorted/categorized yet._
 
+- "Estimating Flight Characteristics of Anomalous Unidentified Aerial Vehicles":<br>
+https://www.mdpi.com/1099-4300/21/10/939
+
 - "Episode 5: Advanced Aerospace Threat and Identification Program (AATIP)" 
 Forwarded by Nick Madrid: "This presentation shows the slides that were used by Davis in the presentations they were found on a website controlled by Christopher melon"<br>
 https://www.youtube.com/watch?v=l24bPVlX4rI
