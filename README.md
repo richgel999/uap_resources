@@ -624,6 +624,9 @@ https://where-aliens.blogspot.com/2013/04/vasily-yeremenko-former-kgb-agent.html
 - "Larry King: The UFO Cover-Up? Live from Area 51 (1994)":<br>
 https://www.youtube.com/watch?v=Acp_PhbdUoM
 
+- Brig. Gen. Arthur E. Exon - Roswell Event:<br>
+http://www.roswellproof.com/Exon.html
+
 ## Documentaries
 
 ### "The Phenomenon"
