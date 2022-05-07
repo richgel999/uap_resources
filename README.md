@@ -630,6 +630,9 @@ http://www.roswellproof.com/Exon.html
 - Roswell timeline:<br>
 https://www.nicap.org/roswell4.htm
 
+- "Science In Default" By Dr. James McDonald:<br>
+https://www.youtube.com/watch?v=a5vTqUyxQhM
+
 ## Documentaries
 
 ### "The Phenomenon"
