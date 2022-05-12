@@ -14,7 +14,7 @@ and reports of a crash nearby set the stage for the evolution of a cover-up .
 The realization by military officials that the crash remains
 were in fact debris from one of those mysterious flying disks was
 evidence enough to issue an order of secrecy in the interests of
-national security . Was it the product of a failure of some
+national security. Was it the product of a failure of some
 experimental project of ours? Could it be German or Soviet or
 Chinese? Whatever the source, we would not want anyone to know
 that we had recovered the remains. Many questions would have to
