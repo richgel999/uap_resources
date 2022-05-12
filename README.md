@@ -633,6 +633,9 @@ https://www.nicap.org/roswell4.htm
 - "Science In Default" By Dr. James McDonald:<br>
 https://www.youtube.com/watch?v=a5vTqUyxQhM
 
+- Press release/letter was mailed to several members of the Senate Armed Services Committee about Admiral Bobby Ray Inman:<br>
+http://www.cufon.org/cufon/inmanpr.htm
+
 ## Documentaries
 
 ### "The Phenomenon"
