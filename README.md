@@ -372,6 +372,9 @@ https://www.youtube.com/watch?v=GpB4Ng51PQ8
 - "Is the US government in possession of UFOs | Garry Nolan and Lex Fridman":<br>
 https://www.youtube.com/watch?v=8zQkXRVTxxo
 
+## Bob Oescsler (ex-NASA mission specialist and 80's-90's era ufologist):<br>
+https://github.com/richgel999/uap_resources/blob/main/oescsler.md
+
 ## Other Misc. Resources
 
 _Useful/educational material. Not sorted/categorized yet._
