@@ -125,10 +125,81 @@ counter unexpected extraterrestrial agression.
 Promote mutual global understanding and encourage programs
 that lessen the fundamental differences between earth cultures. 
 
+Develop a worldwide equal access communications network to
+permit real-time audio visual contact. Encourage westernized
+adaptations of freedom of thought to facilitate the acceptance of
+a surrealistic phenomenon and lessen the subservient reaction
+expected from less developed cultures. The China initiative
+devised by Henry Kissinger and President Nixon, President
+Carter's Camp David Accord, Mikhail Gorbachev's Glastnost Policy,
+and The Nobel Prize going to the United Nations Peace Keeping
+Forces evidence the success of such a doctrine.
+
+The extraterrestrial agenda in the dissolution of the coverup involves a more visible profile by exposing the reality of
+their physical existence. The exposure must be explicitly
+calculated in order to allow plausible deniability, yet
+conclusive enough to validate and document. Visual and physical
+evidence in the Gulf Breeze, Florida sightings clearly point out
+their intricate capabilities of accomplishing such a task
+
+## Anatomy of a Cover-Up
+
+How The Flow Chart Works
+
+The Annapolis Research and Study Group has prepared a flow
+chart to provide an easier understanding of how we feel the
+cover-up works. The Roswell, New Mexico crash in 1947 represents
+the first major public relations problem regarding the flying
+disc phenomena. From that point it became necessary to do two
+things regarding the cover-up, finance it and administer it. The
+United States government and corporate America divides the responsibilities.
+
+On the government side the infant space program, which later
+became the National Aeronautics and Space Administration channels
+data to and from "think tanks", which develop policy and provide
+recommendations. The public relations oriented NASA aligns space
+exploration advances with precisely what studies indicate are the
+average national levels of understanding and interest.
+
+On the corporate side, fraternal organizations provide the
+setting for the power elite to interface. The corporations also
+channel data to the "think tanks", whose policy studies determine
+the focus of the various research institutes. These research and
+development institutes and laboratories are equiped to derive and
+develop any available alien technologies and data obtained from
+crash retreival operations including biological remains. They
+also could develop the technologies obtained from a possible
+ongoing inter-acti on with extraterrestrial beings. The end
+result is that these technologies benefit the general public in
+many ways. 
+
+On the Govern ment side, both the Executive and Military
+branches provide intelligence services. These various agencies
+a recharged with the responsibility of gathering information.
+After the information is obtained, it is either suppressed or
+disinformation is disseminated by various methods. The result is
+that the cover-up is perpetuated. FOIA requests are
+substantially "blacked out" for reasons of national security and
+the general public is denied virtually all access to any
+definitive verifiable data.
+
+Americans with their ravenous consumer appetites easily
+succumb to the manipulations of the powerful corporate element.
+Public opinion and the perception of concepts are the product of
+repetitous exposure to mass media, easily manipulated by the
+corporate controllers. Th rough a variety of mass media,
+especially movies and television specials, we are slowly being
+acclimated to the prospect of an extraterrestrial presence. The
+news media, print and broddcast,
 
 
+have become another viable avenue for information and disinformation as the public debates
+the existence of the issue. Currently the favored sensitization
+technique is through the use of television commercials. It's all
+part of a means to an end. The eventual result is a gradual
+growing of public awareness of the physical reality of the
 
-
-
-
+phenomenon. The best way of avoiding culture shock from massive
+changes resulting from any societal phenomenon or scientific
+breakthrough is to take it one step at a time.
 
