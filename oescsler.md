@@ -22,7 +22,7 @@ be answered. What caused the crash? Were there identifiable
 bodies subsequently recovered? Were they human? 
 
 The investigation begins as top military officials caucus to
-delineate the options . The White House must be notif ied. Top
+delineate the options. The White House must be notified. Top
 military specialists are called in to identify components,
 materiel construction, and determine a power and propulsion
 source. Medical Officers are required to identify any biological
@@ -31,13 +31,13 @@ would be needed not only to test the debris, but to scan the
 crash site. 
 
 Exhausting all available internal military resources,
-out side help would be needed. In the event that unidentifiable
+outside help would be needed. In the event that unidentifiable
 humanoid remains were recovered, top medical and anthropological
 scientists would be required for extensive forensic pathology.
 Top research institutions and universities would be canvassed to
 recruit the best medical specialists, the best chemical
 specialists, and the most respected experts in the physics
-disciplines. A special ized security team would be needed to
+disciplines. A specialized security team would be needed to
 brief and debrief the research effort and report to central
 management.
 
@@ -45,7 +45,7 @@ management.
 
 Contact is made, and with it the removal of all doubt about
 the non-human origin of the discoveries. Perhaps a preliminary
-under standing is reached between the parties involved.
+understanding is reached between the parties involved.
 By 1952 it is obvious to the central crisis management team,
 that social impact tests are necessary in order to update
 existing historical models based on the impact of the hysterical
@@ -64,7 +64,7 @@ experiments involving exposure to the extraterrestrial culture.
 These selected few individuals would be monitored to offer a
 glimpse of the reactions to be expected among differing factions
 within the society. Typical selections might include an esoteric
-journa list, a major media journalist, a theologian, and a retired
+journalist, a major media journalist, a theologian, and a retired
 public policy official with an expertise in cattle breeding.
 
 Such a selection could offer such a pragmatic review by virtue of
@@ -83,6 +83,7 @@ The extraterrestrial visitors requiring some kind of
 biological food source, determine cattle to be a viable
 commodity. Perhaps a genetically specialized breed is required
 to obtain the needed nutrients in a processable form.
+
 Specialized genetic breeding experiments are conducted through
 federal and private grant foundations and institutions. An
 agreement is reached with the extraterrestrials to supply the
@@ -98,7 +99,7 @@ fossil fuel industries upon disclosure of the existence of a
 revolutionary energy efficient power source, a product of
 extraterrestrialcraft technologies. Other technological
 disclosures would impact greatly on financial markets related to
-precious metal and element compounds. Abrupt publicdisclosure
+precious metal and element compounds. Abrupt public disclosure
 could have a cataclysmic effect on institutional scientific
 education which could result in total obsolescence of basic
 tenets.
@@ -173,7 +174,7 @@ ongoing inter-acti on with extraterrestrial beings. The end
 result is that these technologies benefit the general public in
 many ways. 
 
-On the Govern ment side, both the Executive and Military
+On the Government side, both the Executive and Military
 branches provide intelligence services. These various agencies
 a recharged with the responsibility of gathering information.
 After the information is obtained, it is either suppressed or
@@ -187,18 +188,15 @@ Americans with their ravenous consumer appetites easily
 succumb to the manipulations of the powerful corporate element.
 Public opinion and the perception of concepts are the product of
 repetitous exposure to mass media, easily manipulated by the
-corporate controllers. Th rough a variety of mass media,
+corporate controllers. Through a variety of mass media,
 especially movies and television specials, we are slowly being
 acclimated to the prospect of an extraterrestrial presence. The
-news media, print and broddcast,
-
-
+news media, print and broadcast, 
 have become another viable avenue for information and disinformation as the public debates
 the existence of the issue. Currently the favored sensitization
 technique is through the use of television commercials. It's all
 part of a means to an end. The eventual result is a gradual
 growing of public awareness of the physical reality of the
-
 phenomenon. The best way of avoiding culture shock from massive
 changes resulting from any societal phenomenon or scientific
 breakthrough is to take it one step at a time.
