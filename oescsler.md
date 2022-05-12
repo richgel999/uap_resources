@@ -1,9 +1,9 @@
-Introduction from [The Chesapeake Connection](http://files.afu.se/Downloads/Books/Digitized_by_AFU/Quest_Publications/Oechsler,%20Bob%20-%20The%20Chesapeake%20Connection%20-%20Part%201%20of%202.pdf#page=35) by Bob Oeschsler in 1989:
+Introduction from [The Chesapeake Connection](http://files.afu.se/Downloads/Books/Digitized_by_AFU/Quest_Publications/Oechsler,%20Bob%20-%20The%20Chesapeake%20Connection%20-%20Part%201%20of%202.pdf#page=35) by Bob Oeschsler (ex-NASA mission specialist) in 1989:
 
 # The Evolution
 
 In The Beginning, the Flying Saucer phenomenon became a
-reality with reported sightings by credible witnesses in th summer of 1947. 
+reality with reported sightings by credible witnesses in the summer of 1947. 
 The reports by Kenneth Arnold on June 24th and United Airlines pilots on July 4th were the focus of media
 attention and created a shroud around the events in and around
 Roswell, New Mexico beginning on July 2nd. The sightings there
