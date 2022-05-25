@@ -639,6 +639,9 @@ https://www.youtube.com/watch?v=a5vTqUyxQhM
 - Press release/letter was mailed to several members of the Senate Armed Services Committee about Admiral Bobby Ray Inman:<br>
 http://www.cufon.org/cufon/inmanpr.htm
 
+- ‘A Skull and Bones-type vibe’: Spy agencies grapple with how much to share at UFO hearing:<br>
+https://www.politico.com/news/2022/05/16/intelligence-agencies-congress-ufo-hearing-00032713
+
 ## Documentaries
 
 ### "The Phenomenon"
