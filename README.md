@@ -404,6 +404,14 @@ https://www.youtube.com/playlist?list=PLZ7ikzmc6zlPd4Y5pg8XtzS_0-ChSTeJ6##
 - Christopher Mellon (20 years in the U.S. Intelligence Community, Minority Staff Director of the Senate Intelligence Committee, Deputy Assistant Secretary of Defense for Intelligence)<br>
 https://www.christophermellon.net/
 
+- Christopher Mellon:
+
+'The intelligence official described another faction inside military and intel agencies “that … takes this subject very seriously” and is protective of UAP-related data.
+
+“They fetishize their secret society,” the official said. “It’s kind of a Skull and Bones-type vibe. They take it seriously but they have no accountability. Zero. There is a whole group of us that know in great detail this subject, a lot of which has not been reported to Congress because of security issues.”'
+
+https://www.politico.com/news/2022/05/16/intelligence-agencies-congress-ufo-hearing-00032713
+
 - Ramey Roswell memo photo analysis, which is very useful because we have public photos with Ramey holding the memo in his hand:<br>
 http://kevinrandle.blogspot.com/2018/12/the-ramey-memo-latest-information.html
 
