@@ -212,13 +212,13 @@ https://www.youtube.com/watch?v=7xBVCi_hIa0
 
 _Core information about the topic. The foundation._
 
-### Hastings
+### Robert Hastings
 UAP's and Nukes - Robert L. Hastings is the world’s foremost researcher on the subject of UFO activity at nuclear weapons sites.<br>
 https://www.ufohastings.com/<br>
 https://www.amazon.com/UFOs-Nukes-Extraordinary-Encounters-Nuclear/dp/1544822197<br>
 https://www.amazon.com/UFOs-Nukes-Secret-Link-Revealed/dp/B06XWQ2NWX/
 
-### Hill
+### Paul Hill
 Paul R. Hill (mid–twentieth-century American aerodynamicist, leading research and development engineer and manager for NASA/NACA),
 UAP's absolutely follow the laws of physics:<br>
 https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-1571747133/dp/1571747133/
@@ -375,6 +375,17 @@ https://www.youtube.com/watch?v=8zQkXRVTxxo
 ## Bob Oeschsler (ex-NASA mission specialist and 80's-90's era ufologist):<br>
 https://github.com/richgel999/uap_resources/blob/main/oescsler.md
 
+## Christopher Mellon
+
+Christopher Mellon (20 years in the U.S. Intelligence Community, Minority Staff Director of the Senate Intelligence Committee, Deputy Assistant Secretary of Defense for Intelligence)<br>
+https://www.christophermellon.net/
+
+'The intelligence official described another faction inside military and intel agencies “that … takes this subject very seriously” and is protective of UAP-related data.
+
+“They fetishize their secret society,” the official said. “It’s kind of a Skull and Bones-type vibe. They take it seriously but they have no accountability. Zero. There is a whole group of us that know in great detail this subject, a lot of which has not been reported to Congress because of security issues.”'
+
+https://www.politico.com/news/2022/05/16/intelligence-agencies-congress-ufo-hearing-00032713
+
 ## Other Misc. Resources
 
 _Useful/educational material. Not sorted/categorized yet._
@@ -400,17 +411,6 @@ https://www.amazon.com/Skinwalkers-Pentagon-Insiders-Account-Government-ebook/dp
 
 - "Theories of Everything with Curt Jaimungal "UFO" playlist", containing in-depth interviews with Luis Elizondo, Jacques Vallée, Avi Loeb, and more:<br>
 https://www.youtube.com/playlist?list=PLZ7ikzmc6zlPd4Y5pg8XtzS_0-ChSTeJ6##
-
-- Christopher Mellon (20 years in the U.S. Intelligence Community, Minority Staff Director of the Senate Intelligence Committee, Deputy Assistant Secretary of Defense for Intelligence)<br>
-https://www.christophermellon.net/
-
-- Christopher Mellon:
-
-'The intelligence official described another faction inside military and intel agencies “that … takes this subject very seriously” and is protective of UAP-related data.
-
-“They fetishize their secret society,” the official said. “It’s kind of a Skull and Bones-type vibe. They take it seriously but they have no accountability. Zero. There is a whole group of us that know in great detail this subject, a lot of which has not been reported to Congress because of security issues.”'
-
-https://www.politico.com/news/2022/05/16/intelligence-agencies-congress-ufo-hearing-00032713
 
 - Ramey Roswell memo photo analysis, which is very useful because we have public photos with Ramey holding the memo in his hand:<br>
 http://kevinrandle.blogspot.com/2018/12/the-ramey-memo-latest-information.html
