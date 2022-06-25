@@ -97,7 +97,7 @@ extraterrestrial population could further tax the effort.
 Economic impact studies reveal a significant effect on
 fossil fuel industries upon disclosure of the existence of a
 revolutionary energy efficient power source, a product of
-extraterrestrialcraft technologies. Other technological
+extraterrestrial craft technologies. Other technological
 disclosures would impact greatly on financial markets related to
 precious metal and element compounds. Abrupt public disclosure
 could have a cataclysmic effect on institutional scientific
