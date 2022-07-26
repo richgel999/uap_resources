@@ -323,7 +323,7 @@ https://www.space.com/18009-meteorite-collectors-public-lands-rules.html
 and program contractors said had been recovered from Unidentified Aerial Phenomena".
 https://www.nytimes.com/2017/12/16/us/politics/pentagon-program-ufo-harry-reid.html
 
-- Video of Bigelow's highly secured vault, apparently showing a strange phenomenum around the materials in this vault:<br>
+- Video of Bigelow's highly secured vault, apparently showing a strange phenomena around the materials in this vault:<br>
 https://twitter.com/richgel999/status/1513712160710479872
 
 More info:<br>
