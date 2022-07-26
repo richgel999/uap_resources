@@ -656,6 +656,9 @@ https://www.politico.com/news/2022/05/16/intelligence-agencies-congress-ufo-hear
 - "Who is in charge?":<br>
 https://twitter.com/528vibes/status/1531098676789231617
 
+- "Scully's Scrapbook" - 1949 rumors of a crashed saucer with occupants:<br>
+https://en.wikisource.org/wiki/Scully%27s_Scrapbook_of_October_8,_1949
+
 ## Documentaries
 
 ### "The Phenomenon"
