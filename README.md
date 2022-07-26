@@ -226,7 +226,9 @@ https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-15717
 
 ## Key Leaked Reports/Memos
 
-_Majestic/MJ-12 Documents. Beware, some of these may be fakes, but earlier researchers were confident in many of them. TODO: This is not a complete list._<br>
+_Majestic/MJ-12 Documents. Beware, some of these may be fakes, but earlier researchers (such as Stanton Friedman) were confident in many of them. TODO: This is not a complete list._<br>
+
+A website with an organized collection of most of the Majestic leaks is [here](https://majesticdocuments.com/).
 
 ### Authenticity
 
