@@ -729,3 +729,10 @@ https://thinkaboutit.site/ufos/project-preserve-destiny/<br>
 
 Potentially some corroboration:<br>
 https://exopolitics.org/nsa-document-supports-whistleblower-claim-of-alien-ufo-communication-program/
+
+### Breadcrumb
+Google or DDG this phrase with no quotes:
+
+mcelroy et al 15 iroquois 398-JM
+
+Fully investigated this case. Poor guy was destroyed.
