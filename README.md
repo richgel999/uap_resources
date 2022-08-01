@@ -297,14 +297,18 @@ https://www.youtube.com/watch?v=t2l_-ixzNKQ
 
 ##  Former Legislator Henry W. McElroy, Jr.'s Statement and Warning
 
-Here's Former New Hampshire Legislator Henry W. McElroy, Jr.'s [video recorded statement](https://www.youtube.com/watch?v=NNV8-k5UvpY&ab_channel=ufonotebook) made on 5/8/2010, on what he called the "visitor" situation, the Eisenhower 1954 meeting, etc. 
+Here's Former New Hampshire Legislator Henry W. McElroy, Jr.'s [video recorded statement](https://www.youtube.com/watch?v=NNV8-k5UvpY&ab_channel=ufonotebook) made on 5/8/2010, on what he called the "visitor" situation, the Eisenhower 1954 meeting, etc. It was made in Fort Monroe, Virginia (Hampton). 
 
-He had an interesting and very sad background. He tried to get some unusual bills passed and other things. You can [Google](https://www.google.com/search?q=mcelroy+et+al+15+iroquois+398-JM)) or [DuckDuckGo](https://duckduckgo.com/?q=mcelroy+et+al+15+iroquois+398-JM) this specific phrase without quotes to start your own investigation and recover the full series of events, all from public records. Remember:
+Here's enough family background to research him on ancestry.com: "Henry Ward McElroy Jr.", B:2 Apr 1941 Hampton, Virginia. Beware his family tree is somewhat complex, and he was raised by his step father "Carl J. Holler" B:14 September 1924 Goldfield, Wright, Iowa, USA D:6 June 2009 Hampton, Hampton City, Virginia, not his biological father. His biological father was "Henry Ward McElroy Sr", B:26 October 1914 Cuba, Alabama, D:24 April 1983. The legislator was married twice (Quinter and Woodward).
+
+He had a very unusual series of events occur in his life before his statement. He tried to get some ["unusual bills"](https://www.newspapers.com/clip/106585416/rep-henry-mcelroy-unusual-bills/) passed, was outspoken about the Constitution in the newspapers, and other things involving currency matters, which was not a good idea. He was very naive, but he fought back with key intel. Perhaps they made an example of this poor American.
+
+You can [Google](https://www.google.com/search?q=mcelroy+et+al+15+iroquois+398-JM) or [DuckDuckGo](https://duckduckgo.com/?q=mcelroy+et+al+15+iroquois+398-JM) this specific phrase without quotes to start your own research or investigation. You can recover the full series of events, all from public records:
 
 mcelroy et al 15 iroquois 398-JM
 
-Or just parse this Cryptos Conundrum-style riddle yourself and use Google, DDG, ancestry.com, and newspapers.com on everything - it's all there. 
-
+I've found using Google, DDG, other search engines, ancestry.com, and newspapers.com, etc. extraordinarily useful. So much information is all public now.
+ 
 ## References, Briefing Documents
 
 DIA DIRD's (Defense Intelligence Agency's _Defense Intelligence Reference Documents_):<br>
