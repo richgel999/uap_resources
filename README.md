@@ -307,7 +307,7 @@ You can [Google](https://www.google.com/search?q=mcelroy+et+al+15+iroquois+398-J
 
 mcelroy et al 15 iroquois 398-JM
 
-I've found using Google, DDG, other search engines, ancestry.com, and newspapers.com, etc. extraordinarily useful. So much information is all public now. My equivalent of Lazar's hidden E115.
+I've found using Google, DDG, other search engines, ancestry.com, and newspapers.com, etc. extraordinarily useful. So much information is all public now. My equivalent of Lazar's hidden E115. (Perhaps Lazar's claimed "E115" really represents information. He obviously got the E115 idea from a recent Scientific American magazine.)
  
 ## References, Briefing Documents
 
