@@ -307,7 +307,7 @@ You can [Google](https://www.google.com/search?q=mcelroy+et+al+15+iroquois+398-J
 
 mcelroy et al 15 iroquois 398-JM
 
-I've found using Google, DDG, other search engines, ancestry.com, and newspapers.com, etc. extraordinarily useful. So much information is all public now.
+I've found using Google, DDG, other search engines, ancestry.com, and newspapers.com, etc. extraordinarily useful. So much information is all public now. My equivalent of Lazar's E115.
  
 ## References, Briefing Documents
 
