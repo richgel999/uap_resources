@@ -297,7 +297,7 @@ https://www.youtube.com/watch?v=t2l_-ixzNKQ
 
 ##  Former Legislator Henry W. McElroy, Jr.'s Statement and Warning
 
-Here's Former New Hampshire Legislator Henry W. McElroy, Jr.'s [video recorded statement](https://www.youtube.com/watch?v=NNV8-k5UvpY&ab_channel=ufonotebook) made on 5/8/2010, on what he called the "visitor" situation, the Eisenhower 1954 meeting, etc. It was made in Fort Monroe, Virginia, around 10 minutes from Hampton, VA. The event didn't have much impact at the time, but there is a lot of public literature and information corroborating available his statements. There are also a lot of witnesses.
+Here's Former New Hampshire Legislator Henry W. McElroy, Jr.'s [video recorded statement](https://www.youtube.com/watch?v=NNV8-k5UvpY&ab_channel=ufonotebook) made on 5/8/2010, on what he called the "visitor" situation, the Eisenhower 1954 meeting, etc. It was made in Fort Monroe, Virginia, around 10 minutes from Hampton, VA. The event didn't have much impact at the time, but there is a lot of public literature that helps corroborate his statements. There are also a lot of witnesses in history and their accounts are in the literature and books.
 
 Here's enough family background to research him on ancestry.com: "Henry Ward McElroy Jr.", B:2 Apr 1941 Hampton, Virginia. Beware his family tree is somewhat complex, and he was raised by his step father "Carl J. Holler" B:14 September 1924 Goldfield, Wright, Iowa, USA D:6 June 2009 Hampton, Hampton City, Virginia, not his biological father. His biological father was "Henry Ward McElroy Sr", B:26 October 1914 Cuba, Alabama, D:24 April 1983. The legislator was married twice (Quinter and Woodward).
 
