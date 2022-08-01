@@ -295,6 +295,16 @@ https://besacenter.org/wp-content/uploads/2020/11/183-Milburn-study-final.pdf
 Presentation about the report:<br>
 https://www.youtube.com/watch?v=t2l_-ixzNKQ
 
+##  Former Legislator Henry W. McElroy, Jr.'s Statement and Warning
+
+Here's Former New Hampshire Legislator Henry W. McElroy, Jr.'s [video recorded statement](https://www.youtube.com/watch?v=NNV8-k5UvpY&ab_channel=ufonotebook) made on 5/8/2010, on what he called the "visitor" situation, the Eisenhower 1954 meeting, etc. 
+
+He had an interesting and very sad background. He tried to get some unusual bills passed and other things. You can [Google](https://www.google.com/search?q=mcelroy+et+al+15+iroquois+398-JM)) or [DuckDuckGo](https://duckduckgo.com/?q=mcelroy+et+al+15+iroquois+398-JM) this specific phrase without quotes to start your own investigation and recover the full series of events, all from public records. Remember:
+
+mcelroy et al 15 iroquois 398-JM
+
+Or just parse this Cryptos Conundrum-style riddle yourself and use Google, DDG, ancestry.com, and newspapers.com on everything - it's all there. 
+
 ## References, Briefing Documents
 
 DIA DIRD's (Defense Intelligence Agency's _Defense Intelligence Reference Documents_):<br>
@@ -730,9 +740,7 @@ https://thinkaboutit.site/ufos/project-preserve-destiny/<br>
 Potentially some corroboration:<br>
 https://exopolitics.org/nsa-document-supports-whistleblower-claim-of-alien-ufo-communication-program/
 
-### Breadcrumb
 Google or DDG this phrase with no quotes:
 
-mcelroy et al 15 iroquois 398-JM
 
-Fully investigated this case. Poor guy was destroyed.
+
