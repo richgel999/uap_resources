@@ -7,6 +7,8 @@ I believe this key material, taken as a whole using [Bayesian inference](https:/
 
 [Lue Elizondo](https://en.wikipedia.org/wiki/Luis_Elizondo) was right: "Do yourself a favor and arm yourself with knowledge. Be very careful who you listen [to] and the information that comes out...You know, look into their background."
 
+Here's my [Medium account](https://medium.com/@richgel99) containing my latest research, and here's my [Twitter](https://twitter.com/richgel999) which is more like a live feed as we figure this mystery out.
+
 ## NY Times Confirmation 7/28/2020
 
 This came out during the height of the pandemic, so we all missed it:
@@ -401,9 +403,27 @@ https://www.christophermellon.net/
 
 https://www.politico.com/news/2022/05/16/intelligence-agencies-congress-ufo-hearing-00032713
 
+## Agent Kewper's (aka Officer Wolff) Anonymous Interview
+
+Ex-CIA/US Army "Agent Kewper" appears to be named Oscar Wayne Wolff, 17 SEP 1935 (or 36?) Park Rapids, MN, to 18 MAR 2015 Menahga, MN. (Thanks to @mrjeffknox for help with this candidate and @JeremyCorbell 's movie hints.) We are still verifying that it's him, but so far he's a good match. His tree is public on ancestry.com. Here's his [obituary](https://www.parkrapidsenterprise.com/obituaries/oscar-w-wolff).
+
+His audio interview with LMH on June 6, 1998 along with a transcript and other files are [here](https://github.com/richgel999/uap_resources/tree/main/kewper_lmh_interview).
+
+15 years later, he was interviewed by Richard Dolan. The video is on YouTube [here](https://www.youtube.com/watch?v=c--gGcsc4aw&ab_channel=CitizenHearingonUFODisclosure).
+
+There's also a [book](https://www.amazon.com/Former-Agent-comes-Shadows-Brief/dp/1936517841/ref=sr_1_1) interview available.
+
+## Possibly first documented "Havana Syndrome"-like attack
+
+Gerald Light, of the BSRA (Borderlands), made a report in the early 50's:<br>
+https://medium.com/@richgel99/gerald-light-possibly-one-of-the-first-victims-of-a-havana-attack-966a7f00a8d9
+
 ## Other Misc. Resources
 
 _Useful/educational material. Not sorted/categorized yet._
+
+- "UFO Over White House: Why Govt. Classified This Incident, Witnessed by Thousands Of Americans":<br>
+https://www.howandwhys.com/ufo-over-white-house-witnessed-by-thousands-of-americans/
 
 - "Estimating Flight Characteristics of Anomalous Unidentified Aerial Vehicles":<br>
 https://www.mdpi.com/1099-4300/21/10/939
