@@ -413,6 +413,11 @@ His audio interview with LMH on June 6, 1998 along with a transcript and other f
 
 There's also a [book](https://www.amazon.com/Former-Agent-comes-Shadows-Brief/dp/1936517841/ref=sr_1_1) interview available.
 
+## Possibly first documented "Havana Syndrome"-like attack
+
+Gerald Light, of the BSRA (Borderlands), made a report in the early 50's:<br>
+https://medium.com/@richgel99/gerald-light-possibly-one-of-the-first-victims-of-a-havana-attack-966a7f00a8d9
+
 ## Other Misc. Resources
 
 _Useful/educational material. Not sorted/categorized yet._
