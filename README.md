@@ -422,6 +422,9 @@ https://medium.com/@richgel99/gerald-light-possibly-one-of-the-first-victims-of-
 
 _Useful/educational material. Not sorted/categorized yet._
 
+- "UFO Over White House: Why Govt. Classified This Incident, Witnessed by Thousands Of Americans":<br>
+https://www.howandwhys.com/ufo-over-white-house-witnessed-by-thousands-of-americans/
+
 - "Estimating Flight Characteristics of Anomalous Unidentified Aerial Vehicles":<br>
 https://www.mdpi.com/1099-4300/21/10/939
 
