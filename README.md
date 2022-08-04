@@ -418,6 +418,9 @@ There's also a [book](https://www.amazon.com/Former-Agent-comes-Shadows-Brief/dp
 Gerald Light, of the BSRA (Borderlands), made a report in the early 50's:<br>
 https://medium.com/@richgel99/gerald-light-possibly-one-of-the-first-victims-of-a-havana-attack-966a7f00a8d9
 
+All BSRA documents are being scanned and placed here (more are on the way):<br>
+https://github.com/richgel999/uap_resources/tree/main/gerald_light_bsra
+
 ## Other Misc. Resources
 
 _Useful/educational material. Not sorted/categorized yet._
