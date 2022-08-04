@@ -5,7 +5,7 @@ His real name appears to be "Oscar Wayne Wolff", 17 SEP 1935 Park Rapids, MN, to
 Key dates:
 Audio interview: June 6, 1998: On Coast to Coast with LMH
 Video interview recorded: March 5, 2013
-Video interview released: April 4, 2014 (actually still alive!)
+Video interview released: April 4, 2014 (Kewper was actually still alive at this time, according to the Garnder's book)
 Wolff's/Kewper's Death: March 18, 2015
 
 (Thanks to @mrjeffknox for help with this candidate.)
