@@ -7,6 +7,8 @@ I believe this key material, taken as a whole using [Bayesian inference](https:/
 
 [Lue Elizondo](https://en.wikipedia.org/wiki/Luis_Elizondo) was right: "Do yourself a favor and arm yourself with knowledge. Be very careful who you listen [to] and the information that comes out...You know, look into their background."
 
+Here's my [Medium account](https://medium.com/@richgel99) containing my latest research, and here's my [Twitter](https://twitter.com/richgel999) which is more like a live feed as we figure this mystery out.
+
 ## NY Times Confirmation 7/28/2020
 
 This came out during the height of the pandemic, so we all missed it:
