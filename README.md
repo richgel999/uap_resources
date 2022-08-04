@@ -295,7 +295,7 @@ https://besacenter.org/wp-content/uploads/2020/11/183-Milburn-study-final.pdf
 Presentation about the report:<br>
 https://www.youtube.com/watch?v=t2l_-ixzNKQ
 
-##  Former Legislator Henry W. McElroy, Jr.'s Statement and Warning
+##  Former Legislator Henry W. McElroy, Jr.'s Statement
 
 Here's Former New Hampshire Legislator Henry W. McElroy, Jr.'s [video recorded statement](https://www.youtube.com/watch?v=NNV8-k5UvpY&ab_channel=ufonotebook) made on 5/8/2010, on what he called the "visitor" situation, the Eisenhower 1954 meeting, etc. It was made in Fort Monroe, Virginia, around 10 minutes from Hampton, VA. The event didn't have much impact at the time, but there is a lot of public literature that helps corroborate his statements. There are also a lot of witnesses in history and their accounts are in the literature and books.
 
