@@ -401,6 +401,18 @@ https://www.christophermellon.net/
 
 https://www.politico.com/news/2022/05/16/intelligence-agencies-congress-ufo-hearing-00032713
 
+## Agent Kewper's (aka Officer Wolff) Anonymous Interview
+
+Ex-CIA/US Army "Agent Kewper" appears to be named Oscar Wayne Wolff, 17 SEP 1935 (or 36?) Park Rapids, MN, to 18 MAR 2015 Menahga, MN. 
+
+(Thanks to @mrjeffknox for help with this candidate and @JeremyCorbell 's movie hints.)
+
+His audio interview with LMH on June 6, 1998 along with a transcript and other files are [here](https://github.com/richgel999/uap_resources/tree/main/kewper_lmh_interview).
+
+15 years later, he was interviewed by Richard Dolan. The video is on YouTube [here](https://www.youtube.com/watch?v=c--gGcsc4aw&ab_channel=CitizenHearingonUFODisclosure).
+
+There's also a [book](https://www.amazon.com/Former-Agent-comes-Shadows-Brief/dp/1936517841/ref=sr_1_1) interview available.
+
 ## Other Misc. Resources
 
 _Useful/educational material. Not sorted/categorized yet._
@@ -707,18 +719,6 @@ https://www.youtube.com/watch?v=5E6QyAhTB3o
 
 "Docs Show Navy Got 'UFO' Patent Granted By Warning Of Similar Chinese Tech Advances" - 6/28/2019:<br>
 https://www.thedrive.com/the-war-zone/28729/docs-show-navy-got-ufo-patent-granted-by-warning-of-similar-chinese-tech-advances
-
-## Agent Kewper's Anonymous Interview
-
-Ex-CIA/US Army "Agent Kewper" appears to be named Oscar Wayne Wolff, 17 SEP 1935 (or 36?) Park Rapids, MN, to 18 MAR 2015 Menahga, MN. 
-
-(Thanks to @mrjeffknox for help with this candidate and @JeremyCorbell 's movie hints.)
-
-His audio interview with LMH on June 6, 1998 along with a transcript and other files are [here](https://github.com/richgel999/uap_resources/tree/main/kewper_lmh_interview).
-
-15 years later, he was interviewed by Richard Dolan. The video is on YouTube [here](https://www.youtube.com/watch?v=c--gGcsc4aw&ab_channel=CitizenHearingonUFODisclosure).
-
-There's also a [book](https://www.amazon.com/Former-Agent-comes-Shadows-Brief/dp/1936517841/ref=sr_1_1) interview available.
 
 ## Wildcards 
 
