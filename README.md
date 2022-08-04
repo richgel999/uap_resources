@@ -405,9 +405,7 @@ https://www.politico.com/news/2022/05/16/intelligence-agencies-congress-ufo-hear
 
 ## Agent Kewper's (aka Officer Wolff) Anonymous Interview
 
-Ex-CIA/US Army "Agent Kewper" appears to be named Oscar Wayne Wolff, 17 SEP 1935 (or 36?) Park Rapids, MN, to 18 MAR 2015 Menahga, MN. 
-
-(Thanks to @mrjeffknox for help with this candidate and @JeremyCorbell 's movie hints.)
+Ex-CIA/US Army "Agent Kewper" appears to be named Oscar Wayne Wolff, 17 SEP 1935 (or 36?) Park Rapids, MN, to 18 MAR 2015 Menahga, MN. (Thanks to @mrjeffknox for help with this candidate and @JeremyCorbell 's movie hints.) We are still verifying that it's him, but so far he's a good match. His tree is public on ancestry.com.
 
 His audio interview with LMH on June 6, 1998 along with a transcript and other files are [here](https://github.com/richgel999/uap_resources/tree/main/kewper_lmh_interview).
 
