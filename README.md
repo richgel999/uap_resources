@@ -765,7 +765,7 @@ https://thinkaboutit.site/ufos/project-preserve-destiny/<br>
 Potentially some corroboration:<br>
 https://exopolitics.org/nsa-document-supports-whistleblower-claim-of-alien-ufo-communication-program/
 
-Google or DDG this phrase with no quotes:
+
 
 
 
