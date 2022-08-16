@@ -761,11 +761,14 @@ _Pre-disclosure. Claimed to have a clearance._
 https://www.aboveblack.com/index.html<br>
 https://www.amazon.com/ABOVE-BLACK-Preserve-Insiders-Government-ebook/dp/B003L77MUU/ref=sr_1_1<br>
 https://thinkaboutit.site/ufos/project-preserve-destiny/<br>
+https://unicusmagazine.com/PDF/ABOVE%20BLACK.pdf<br>
+https://www.stealthskater.com/Documents/Sherman_3.pdf
 
 Potentially some corroboration:<br>
 https://exopolitics.org/nsa-document-supports-whistleblower-claim-of-alien-ufo-communication-program/
 
-Google or DDG this phrase with no quotes:
+
+
 
 
 
