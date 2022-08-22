@@ -425,6 +425,9 @@ https://github.com/richgel999/uap_resources/tree/main/gerald_light_bsra
 
 _Useful/educational material. Not sorted/categorized yet._
 
+- "Congress implies UFOs have non-human origins":<br>
+https://thehill.com/opinion/3610916-congress-implies-ufos-have-non-human-origins/
+
 - "UFO Over White House: Why Govt. Classified This Incident, Witnessed by Thousands Of Americans":<br>
 https://www.howandwhys.com/ufo-over-white-house-witnessed-by-thousands-of-americans/
 
