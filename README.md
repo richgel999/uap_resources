@@ -204,6 +204,12 @@ https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf
 I personally interviewed over the phone James Clarkson in Washington State on the night of 4/8/2022. He is quite sharp and remembers Crain and her testimony very well. He is available for interviews by media/reporters. Just go to his website and contact him by phone or email:<br>
 https://jamesclarksonufo.com/about/james-clarkson-biography
 
+"Where was Wright-Patterson AFB Clerk-Stenographer June Crain living the week of Roswell?"<br>
+https://medium.com/@richgel99/where-was-wright-patterson-afb-clerk-stenographer-june-crain-living-the-week-of-roswell-858bdfeca73c
+
+"Wright-Patterson AFB Worker June Crain’s Signed “Notice of Security Obligations” Form"<br>
+https://medium.com/@richgel99/wright-patterson-afb-worker-june-crains-signed-notice-of-security-obligations-form-6cc3a36b55c8
+
 ### James Semivan
 
 25 year CIA Officer (Senior Intelligence Service), TTSA VP of Ops, Co-Founder "To The Stars" 
