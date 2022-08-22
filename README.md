@@ -297,7 +297,7 @@ https://www.theufochronicles.com/2009/06/roswell-metal-scientist-curious-dr.html
 ## Begin–Sadat Center for Strategic Studies Report
 
 "The Pentagon’s UAP Task Force Franc Milburn" from the Begin–Sadat Center for Strategic Studies:<br>
-Very good summary of the situatio since 2004, with many details.<br>
+Very good summary of the situation since 2004, with many details.<br>
 https://besacenter.org/wp-content/uploads/2020/11/183-Milburn-study-final.pdf
 
 Presentation about the report:<br>
