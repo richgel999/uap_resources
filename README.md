@@ -204,6 +204,12 @@ https://majesticdocuments.com/pdf/crain_clarksoninterview.pdf
 I personally interviewed over the phone James Clarkson in Washington State on the night of 4/8/2022. He is quite sharp and remembers Crain and her testimony very well. He is available for interviews by media/reporters. Just go to his website and contact him by phone or email:<br>
 https://jamesclarksonufo.com/about/james-clarkson-biography
 
+"Where was Wright-Patterson AFB Clerk-Stenographer June Crain living the week of Roswell?"<br>
+https://medium.com/@richgel99/where-was-wright-patterson-afb-clerk-stenographer-june-crain-living-the-week-of-roswell-858bdfeca73c
+
+"Wright-Patterson AFB Worker June Crain’s Signed “Notice of Security Obligations” Form"<br>
+https://medium.com/@richgel99/wright-patterson-afb-worker-june-crains-signed-notice-of-security-obligations-form-6cc3a36b55c8
+
 ### James Semivan
 
 25 year CIA Officer (Senior Intelligence Service), TTSA VP of Ops, Co-Founder "To The Stars" 
@@ -291,7 +297,7 @@ https://www.theufochronicles.com/2009/06/roswell-metal-scientist-curious-dr.html
 ## Begin–Sadat Center for Strategic Studies Report
 
 "The Pentagon’s UAP Task Force Franc Milburn" from the Begin–Sadat Center for Strategic Studies:<br>
-Very good summary of the situatio since 2004, with many details.<br>
+Very good summary of the situation since 2004, with many details.<br>
 https://besacenter.org/wp-content/uploads/2020/11/183-Milburn-study-final.pdf
 
 Presentation about the report:<br>
@@ -405,7 +411,8 @@ https://www.politico.com/news/2022/05/16/intelligence-agencies-congress-ufo-hear
 
 ## Agent Kewper's (aka Officer Wolff) Anonymous Interview
 
-Ex-CIA/US Army "Agent Kewper" appears to be named Oscar Wayne Wolff, 17 SEP 1935 (or 36?) Park Rapids, MN, to 18 MAR 2015 Menahga, MN. (Thanks to @mrjeffknox for help with this candidate and @JeremyCorbell 's movie hints.) We are still verifying that it's him, but so far he's a good match. His tree is public on ancestry.com. Here's his [obituary](https://www.parkrapidsenterprise.com/obituaries/oscar-w-wolff).
+Ex-CIA/US Army "Agent Kewper" appears to be named Oscar Wayne Wolff, 17 SEP 1935 (or 36?) Park Rapids, MN, to 18 MAR 2015 Menahga, MN. (Thanks to @mrjeffknox for help with this candidate and @JeremyCorbell 's movie hints.) We are still verifying that it's him, but so far he's a good match. His tree is public on ancestry.com. Here's his [obituary](https://www.parkrapidsenterprise.com/obituaries/oscar-w-wolff). More here:<br>
+https://medium.com/@richgel99/deanonymizing-anonymous-agent-kewper-a1284fdab3fe
 
 His audio interview with LMH on June 6, 1998 along with a transcript and other files are [here](https://github.com/richgel999/uap_resources/tree/main/kewper_lmh_interview).
 
@@ -424,6 +431,9 @@ https://github.com/richgel999/uap_resources/tree/main/gerald_light_bsra
 ## Other Misc. Resources
 
 _Useful/educational material. Not sorted/categorized yet._
+
+- "Congress implies UFOs have non-human origins":<br>
+https://thehill.com/opinion/3610916-congress-implies-ufos-have-non-human-origins/
 
 - "UFO Over White House: Why Govt. Classified This Incident, Witnessed by Thousands Of Americans":<br>
 https://www.howandwhys.com/ufo-over-white-house-witnessed-by-thousands-of-americans/
