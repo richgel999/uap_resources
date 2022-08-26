@@ -704,6 +704,9 @@ https://twitter.com/528vibes/status/1531098676789231617
 - "Scully's Scrapbook" - 1949 rumors of a crashed saucer with occupants:<br>
 https://en.wikisource.org/wiki/Scully%27s_Scrapbook_of_October_8,_1949
 
+- "MJ-12, Crashed Saucers, and Admiral Bobby Ray Inman" (mentions ex-NASA and ufo researcher Bob Oechsler):<br>
+https://getpodcast.com/dk/podcast/paranormal-ufo-consciousness-podcast/mj-12-crashed-saucers-and-admiral-bobby-ray-inman_235b82c433
+
 ## Documentaries
 
 ### "The Phenomenon"
