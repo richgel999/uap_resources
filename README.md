@@ -780,8 +780,6 @@ https://www.stealthskater.com/Documents/Sherman_3.pdf
 Potentially some corroboration:<br>
 https://exopolitics.org/nsa-document-supports-whistleblower-claim-of-alien-ufo-communication-program/
 
-
-
-
-
+I researched Dan and found he was living in the right area, at the right time near Offutt AFB:<br>
+https://medium.com/@richgel99/some-public-record-corroboration-of-ex-usaf-sergeant-dan-shermans-story-90dacc6e36dd
 
