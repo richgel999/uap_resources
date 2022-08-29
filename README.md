@@ -1,4 +1,10 @@
 # Key OSINT UAP Resources
+My medium account, with a bunch of research articles, is here:<br>
+https://medium.com/@richgel99
+
+Here's my Twitter:<br>
+https://twitter.com/richgel999
+
 At this point in the UAP Disclosure (or "Scheduled Dissemination" - Ramirez) Process, what's been missing is a compilation of the key information from the historical and modern-day people with [Security Clearances](https://en.wikipedia.org/wiki/Security_clearance). This repo aims to fill that gap.
 
 Some of the key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Ramirez, Hastings and Hill, Astronaut Dr. Edgar Mitchell (the 6th person on the Moon), a few 1940's-1950's-era memo/report leaks, the declassified Austrialian report, and at least two NY Times articles (one published during the height of the pandemic in 2020, so it was probably missed by most). 
