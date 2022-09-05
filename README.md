@@ -117,7 +117,7 @@ Greenstreet interviewed Davis for 50 minutes, but only 27 minutes have been rele
 https://www.ufojoe.net/the-lost-interview-eric-davis-on-wilson/
 
 ### Dr. Hal E. Puthoff PhD
-Dr Hal Puthoff Presentation & Q&A - he mentions C/R or the phrase "Crash Retrievals" twice, the new R&D program, DIA DIRD's, also has worked with Davis at EarthTech<br>
+Dr Hal Puthoff Presentation & Q&A - he mentions C/R or the phrase "Crash Retrievals" twice, the new R&D program, DIA DIRD's, also has worked with Davis at EarthTech. This video also has Rich Hoffman (SCU), who stated in public at the SCU's AAPC 2022 conference that he had a security clearance and worked for a US Army General.<br>
 https://www.youtube.com/watch?v=UnCjbN7LCCs
 
 "Dr. Hal Puthoff Address to the SSE/IRVA Conference, Las Vegas, 8 June 2018" (from @kentbye):<br>
