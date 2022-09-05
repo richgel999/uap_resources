@@ -126,6 +126,9 @@ https://www.youtube.com/watch?v=UnCjbN7LCCs
 
 https://paradigmresearchgroup.org/2018/06/12/dr-hal-puthoff-presentation-at-the-sse-irva-conference-las-vegas-nv-15-june-2018/
 
+"Dr. Hal Puthoff | IRVA SSE Conference, 2018" - crucial video, lots of info revealed:<br>
+https://youtu.be/pOxcUKzrY_U
+
 ### Luis “Lue” Elizondo
 
 - "Why Unidentified Aerial Phenomena Are A National Security Risk And Also An Opportunity For Progress":<br>
