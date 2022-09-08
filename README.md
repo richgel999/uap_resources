@@ -28,6 +28,8 @@ https://www.youtube.com/watch?v=64s8ujoydRM
 - John F. Ramirez - Intelligence Analyst, GS-15 (equivalent to Colonel) CIA Directorate of Science and Technology, Directorate of Intelligence, and the ODNI National Counterproliferation Center (NCPC) 1984-2009. Chief, ELINT Analysis Branch specializing in Ballistic Missile Defense. Majored in Political Science, graduated George Washington University 1983, recipient of the CIA [Career Intelligence Medal](https://en.wikipedia.org/wiki/Career_Intelligence_Medal) 3/17/2010. ([Twitter](https://twitter.com/JRam_11_11))
 - James Semivan - CIA 25 year (Senior Intelligence Service), co-founder/VP Operations of TTSA, also founded [To The Stars](https://www.linkedin.com/company/to-the-stars-inc-).
 - Donald H. Phillips - USAF. Worked with famous aeronautical engineer Kelly Johnson. Here's his [verified background](https://medium.com/@richgel99/the-background-of-a-real-ex-usaf-cia-lockheed-whistleblower-donald-h-phillips-1941-2007-783175cca190).
+- Professor Avi Loeb (TODO) - He has a security clearance:<br>
+https://medium.com/@davidpaul777/expedition-to-retrieve-alien-device-from-ocean-begins-d429ec1beb6a
 
 ## Key Material (All Have/Had Clearances)
 
