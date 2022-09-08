@@ -20,6 +20,7 @@ Documentary:<br>
 https://www.youtube.com/watch?v=64s8ujoydRM
 
 ## Key Personnel/Scientists/Witnesses (all have/had clearances)
+- [Lt. Col. Jesse Marcel](https://en.wikipedia.org/wiki/Jesse_Marcel) - Army Air Force Intelligence Officer, Roswell Incident Witness.
 - Lt. Col. Philip J. Corso - Chief [Foreign Technology Division (FTD) of the US DoD](https://en.wikipedia.org/wiki/National_Air_and_Space_Intelligence_Center#Foreign_Technology_Division), Battalion Commander of European Air Defense, Chief of the US Counterintelligence Corps in Rome ([Wikipedia](https://en.wikipedia.org/wiki/Philip_J._Corso) and [Army Form 66](http://www.cufon.org/cufon/corso_da66.htm))
 - Luis “Lue” Elizondo - Program Manager/Director for [AATIP](https://en.wikipedia.org/wiki/Advanced_Aerospace_Threat_Identification_Program), Career Intelligence Officer US Army and DoD, Counterintelligence Special Agent US Army ([Official Page](https://luiselizondo-official.com/), [Wikipedia](https://en.wikipedia.org/wiki/Luis_Elizondo), [Twitter](https://twitter.com/LueElizondo))
 - Dr. Eric W. Davis PhD - Astrophysicist (University of Arizona) with a background in Quantum Field Theory and Relativity, Consultant to US Air Force (AFRL)/DoD/DoE/NASA, and Senior Science Advisor at the Institute for Advanced Studies in Austin ([EarthTech](https://earthtech.org/pubs/davis/), [LinkedIn](https://www.linkedin.com/in/eric-w-davis/))
