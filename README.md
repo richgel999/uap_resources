@@ -411,7 +411,7 @@ Article on his death, with some background info:<br>
 https://www.the-sun.com/news/993616/ex-nasa-man-dies-of-cancer/
 
 Audio interview - BBC Radio:<br>
-https://www.youtube.com/watch?v=Y76yFmr1sjA:<br>
+https://www.youtube.com/watch?v=Y76yFmr1sjA<br>
 https://versounmondonuovo.wordpress.com/2015/09/12/ufo-ex-nasa-scientist-bob-oechsler-bbc-radio-1-dj-nicky-campbell/
 
 Interview Part 1:<br>
