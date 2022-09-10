@@ -428,6 +428,12 @@ http://www.cufon.org/cufon/inmanpr.htm
 Admiral Bob R. Inman on Crash Retrievals:<br>
 https://www.youtube.com/watch?v=LsPXbrIwb8c
 
+"CHESAPEAKE CONNECTION An Implication of Corporate Involvement in the UFO Cover-up - Part 1":<br>
+https://files.afu.se/Downloads/Books/Digitized_by_AFU/Quest_Publications/Oechsler,%20Bob%20-%20The%20Chesapeake%20Connection%20-%20Part%201%20of%202.pdf#page=1
+
+"CHESAPEAKE CONNECTION An Implication of Corporate Involvement in the UFO Cover-up - Part 2":<br>
+https://files.afu.se/Downloads/Books/Digitized_by_AFU/Quest_Publications/Oechsler,%20Bob%20-%20The%20Chesapeake%20Connection%20-%20Part%202%20of%202.pdf#page=1
+
 ## Christopher Mellon
 
 Christopher Mellon (20 years in the U.S. Intelligence Community, Minority Staff Director of the Senate Intelligence Committee, Deputy Assistant Secretary of Defense for Intelligence)<br>
