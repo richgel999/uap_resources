@@ -405,6 +405,9 @@ https://www.youtube.com/watch?v=8zQkXRVTxxo
 ## Bob Oeschsler (ex-NASA mission specialist and 80's-90's era ufologist):<br>
 https://github.com/richgel999/uap_resources/blob/main/oescsler.md
 
+Audio interview:<br>
+https://versounmondonuovo.wordpress.com/2015/09/12/ufo-ex-nasa-scientist-bob-oechsler-bbc-radio-1-dj-nicky-campbell/
+
 ## Christopher Mellon
 
 Christopher Mellon (20 years in the U.S. Intelligence Community, Minority Staff Director of the Senate Intelligence Committee, Deputy Assistant Secretary of Defense for Intelligence)<br>
