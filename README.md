@@ -403,10 +403,30 @@ https://www.youtube.com/watch?v=GpB4Ng51PQ8
 https://www.youtube.com/watch?v=8zQkXRVTxxo
 
 ## Bob Oeschsler (ex-NASA mission specialist and 80's-90's era ufologist):<br>
+
+His group's late-80's analysis of the coverup situation:<br>
 https://github.com/richgel999/uap_resources/blob/main/oescsler.md
 
-Audio interview:<br>
+Article on his death, with some background info:<br>
+https://www.the-sun.com/news/993616/ex-nasa-man-dies-of-cancer/
+
+Audio interview - BBC Radio:<br>
 https://versounmondonuovo.wordpress.com/2015/09/12/ufo-ex-nasa-scientist-bob-oechsler-bbc-radio-1-dj-nicky-campbell/
+
+Interview Part 1:<br>
+https://www.youtube.com/watch?v=1E5xHRPNaFo
+
+Interview Part 2:<br>
+https://www.youtube.com/watch?v=aJnwVn8pkkM
+
+Interview Part 3:<br>
+https://www.youtube.com/watch?v=er0BcRQShIY
+
+MJ-12:<br>
+http://www.cufon.org/cufon/inmanpr.htm
+
+Admiral Bob R. Inman on Crash Retrievals:<br>
+https://www.youtube.com/watch?v=LsPXbrIwb8c
 
 ## Christopher Mellon
 
