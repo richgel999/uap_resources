@@ -239,6 +239,17 @@ Paul R. Hill (mid–twentieth-century American aerodynamicist, leading research 
 UAP's absolutely follow the laws of physics:<br>
 https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-1571747133/dp/1571747133/
 
+## MJ-12 - It existed, and still does
+
+More “Working Group” (mj12) Corroboration:<br>
+https://medium.com/@richgel99/more-working-group-mj12-corroboration-28dd63a79d42
+
+US Army Col. Philip J. Corso on the “Majestic-12” Working Group:<br>
+https://medium.com/@richgel99/col-philip-j-corso-on-majestic-12-8df8cf612539
+
+The Elephant Still In the Room: MJ-12:<br>
+https://medium.com/@richgel99/the-elephant-still-in-the-room-mj-12-ba7bdbc13b69
+
 ## Key Leaked Reports/Memos
 
 _Majestic/MJ-12 Documents. Beware, some of these may be fakes, but earlier researchers (such as Stanton Friedman) were confident in many of them. TODO: This is not a complete list._<br>
@@ -255,17 +266,6 @@ https://majesticdocuments.com/documents/document-authentication/summary-argument
 
 Update on Operation Majestic 12 Documents - Friedman:<br>
 http://stantonfriedman.com/index.php?ptp=articles&fdt=2004.04.15
-
-### MJ-12 - It existed, and still does
-
-More “Working Group” (mj12) Corroboration:<br>
-https://medium.com/@richgel99/more-working-group-mj12-corroboration-28dd63a79d42
-
-US Army Col. Philip J. Corso on the “Majestic-12” Working Group:<br>
-https://medium.com/@richgel99/col-philip-j-corso-on-majestic-12-8df8cf612539
-
-The Elephant Still In the Room: MJ-12:<br>
-https://medium.com/@richgel99/the-elephant-still-in-the-room-mj-12-ba7bdbc13b69
 
 ### Reports/Memos:
 
