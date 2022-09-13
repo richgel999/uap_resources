@@ -194,6 +194,13 @@ https://www.youtube.com/watch?v=eXerKPm2-p4
 _Pre-disclosure_
 
 Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
+Searchable:<br>
+https://archive.org/details/PhilipJ.Corso-DawnOfANewAge
+
+Local copy - Searchable (Adobe Acrobad Pro OCR):<br>
+https://github.com/richgel999/uap_resources/blob/main/corso_dawn_of_a_new_age_searchable.pdf
+
+Backup - non-searchable: Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
 https://www.openminds.tv/pdf/ufo-files/DawnOfANewAge.pdf
 
 Book on Army R&D feeding exotic UAP-sourced materials to US industry, the R area crash recovery (C/R), by Corso and Birnes<br>
