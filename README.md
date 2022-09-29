@@ -194,6 +194,13 @@ https://www.youtube.com/watch?v=eXerKPm2-p4
 _Pre-disclosure_
 
 Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
+Searchable:<br>
+https://archive.org/details/PhilipJ.Corso-DawnOfANewAge
+
+Local copy - Searchable (Adobe Acrobad Pro OCR):<br>
+https://github.com/richgel999/uap_resources/blob/main/corso_dawn_of_a_new_age_searchable.pdf
+
+Backup - non-searchable: Lt. Col. Philip J. Corso - "Dawn of a New Age" ("Golden Age of R&D")<br>
 https://www.openminds.tv/pdf/ufo-files/DawnOfANewAge.pdf
 
 Book on Army R&D feeding exotic UAP-sourced materials to US industry, the R area crash recovery (C/R), by Corso and Birnes<br>
@@ -238,6 +245,17 @@ https://www.amazon.com/UFOs-Nukes-Secret-Link-Revealed/dp/B06XWQ2NWX/
 Paul R. Hill (mid–twentieth-century American aerodynamicist, leading research and development engineer and manager for NASA/NACA),
 UAP's absolutely follow the laws of physics:<br>
 https://www.amazon.com/Unconventional-Flying-Objects-Scientist-Explains-dp-1571747133/dp/1571747133/
+
+## MJ-12 - It existed, and still does
+
+More “Working Group” (mj12) Corroboration:<br>
+https://medium.com/@richgel99/more-working-group-mj12-corroboration-28dd63a79d42
+
+US Army Col. Philip J. Corso on the “Majestic-12” Working Group:<br>
+https://medium.com/@richgel99/col-philip-j-corso-on-majestic-12-8df8cf612539
+
+The Elephant Still In the Room: MJ-12:<br>
+https://medium.com/@richgel99/the-elephant-still-in-the-room-mj-12-ba7bdbc13b69
 
 ## Key Leaked Reports/Memos
 
