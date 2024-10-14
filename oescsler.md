@@ -1,4 +1,4 @@
-Introduction from [The Chesapeake Connection](http://files.afu.se/Downloads/Books/Digitized_by_AFU/Quest_Publications/Oechsler,%20Bob%20-%20The%20Chesapeake%20Connection%20-%20Part%201%20of%202.pdf) by Bob Oechsler (ex-NASA mission specialist) in 1989:
+Introduction from [The Chesapeake Connection](https://files.afu.se/Downloads/Books/Other/Quest_Publications/Oechsler%2C%20Bob%20-%20The%20Chesapeake%20Connection%20-%20Part%201%20of%202.pdf) by Bob Oechsler (ex-NASA mission specialist) in 1989. Part 2 is [here](https://files.afu.se/Downloads/Books/Other/Quest_Publications/Oechsler%2C%20Bob%20-%20The%20Chesapeake%20Connection%20-%20Part%202%20of%202.pdf).
 
 # The Evolution
 
