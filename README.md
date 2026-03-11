@@ -1,6 +1,4 @@
 # Key OSINT UAP Resources
-A useful resource: *Son of the Sun* by Millen Cooke (11/1947 - likely written around the time of the summer of '47 wave), backed up [here](https://archive.ph/Tjum5), original [here](https://medium.com/@richgel99/son-of-the-sun-by-millen-cooke-7fd71f90fe40). Also see it [here on archive.org](https://archive.org/details/son-of-the-sun-by-millen-cooke).
-
 At this point in the UAP Disclosure (or "Scheduled Dissemination" - Ramirez) Process, what's been missing is a compilation of the key information from the historical and modern-day people with [Security Clearances](https://en.wikipedia.org/wiki/Security_clearance). This repo aims to fill that gap.
 
 Some of the key UAP related reading/listening materials are from Corso, Crain, Elizondo, Davis, Puthoff, Ramirez, Hastings and Hill, Astronaut Dr. Edgar Mitchell (the 6th person on the Moon), a few 1940's-1950's-era memo/report leaks, the declassified Austrialian report, and at least two NY Times articles (one published during the height of the pandemic in 2020, so it was probably missed by most). 
@@ -10,6 +8,8 @@ I believe this key material, taken as a whole using [Bayesian inference](https:/
 [Lue Elizondo](https://en.wikipedia.org/wiki/Luis_Elizondo) was right: "Do yourself a favor and arm yourself with knowledge. Be very careful who you listen [to] and the information that comes out...You know, look into their background."
 
 Here's my [Medium account](https://medium.com/@richgel99) containing my latest research, and here's my [Twitter](https://twitter.com/richgel999) which is more like a live feed as we figure this mystery out.
+
+Also, here's a useful resource for perspective: *Son of the Sun* by Millen Cooke (originally published in *Fantastic Adventures*, v09n07, Nov. 1947, under the pen name Alexander Blade - likely written around the time of the summer of '47 wave), backed up [here](https://archive.ph/Tjum5), original [here](https://medium.com/@richgel99/son-of-the-sun-by-millen-cooke-7fd71f90fe40). Also see it [here on archive.org](https://archive.org/details/son-of-the-sun-by-millen-cooke).
 
 ## NY Times Confirmation 7/28/2020
 
