@@ -9,7 +9,7 @@ I believe this key material, taken as a whole using [Bayesian inference](https:/
 
 Here's my [Medium account](https://medium.com/@richgel99) containing my latest research, and here's my [Twitter](https://twitter.com/richgel999) which is more like a live feed as we figure this mystery out.
 
-Also, here's a useful resource for perspective: *Son of the Sun* by Millen Cooke (originally published in *Fantastic Adventures*, v09n07, Nov. 1947, under the pen name Alexander Blade - likely written around the time of the summer of '47 wave), backed up [here](https://archive.ph/Tjum5), original [here](https://medium.com/@richgel99/son-of-the-sun-by-millen-cooke-7fd71f90fe40). Also see it [here on archive.org](https://archive.org/details/son-of-the-sun-by-millen-cooke).
+Also, here's a useful resource for perspective: *Son of the Sun* by Millen Cooke (originally published in [*Fantastic Adventures*, v09n07, Nov. 1947](https://archive.org/details/Fantastic_Adventures_v09n07_1947-11_unz.org), under the pen name Alexander Blade - likely written around the time of the summer of '47 wave), backed up [here](https://archive.ph/Tjum5), original [here](https://medium.com/@richgel99/son-of-the-sun-by-millen-cooke-7fd71f90fe40). Also see it [here on archive.org](https://archive.org/details/son-of-the-sun-by-millen-cooke).
 
 ## NY Times Confirmation 7/28/2020
 
